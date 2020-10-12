@@ -19,9 +19,9 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 5). Potter/Ten Speed/Ha
 	- the possibility of restoring well being
 	- and the Noble Eightfold Path that leads to well being 
 
-Identifying suffering, it's causes and the path forward offers liberation to the followers of this philosophy.
+Identifying suffering, its causes and the path forward offers liberation to the followers of this philosophy.
 
-**The teaching of the middle way** - Austerity is not the way. Avoiding our problems is not the way. 
+**The teaching of the middle way** - Austerity is not the way. Avoiding our problems is not the way. Indulging in vice like sex, fame and drugs is also not the way. The middle way is the way to acknowledge these things and proc
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTM1Nzk3NTkyNywxMzgyMzI1OTY2XX0=
+eyJoaXN0b3J5IjpbNjE0MTk2NDIyLDEzODIzMjU5NjZdfQ==
 -->
