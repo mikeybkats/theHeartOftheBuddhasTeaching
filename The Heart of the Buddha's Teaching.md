@@ -39,7 +39,8 @@ The second noble truth is origin, nature, creation and arising of suffering.
 Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 9). Potter/Ten Speed/Harmony/Rodale. Kindle Edition.   
 ```
 
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTQ0MDg4ODUzNSwtMTc0NzY3NTM5Miw5OD
+eyJoaXN0b3J5IjpbLTU0Njk2ODc2MywtMTc0NzY3NTM5Miw5OD
 A0NDYzOTAsMTM4MjMyNTk2Nl19
 -->
