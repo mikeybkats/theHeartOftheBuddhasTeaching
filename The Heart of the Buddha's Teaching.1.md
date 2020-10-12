@@ -11,7 +11,13 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 5). Potter/Ten Speed/Ha
 
 ### Chapter 2: The first Dharma Talk
 
-**Dharma**  
+**Dharma** 
+
+**Four Noble Truths:**
+	- the existance of suffering
+	- the making of suffering
+	- the possibility of restoring well being
+	- and the Noble Eightfold Path that leads to well being 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTM0NDk2MjMzNV19
+eyJoaXN0b3J5IjpbLTQ5NjUzNzU4Nl19
 -->
