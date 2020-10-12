@@ -9,7 +9,11 @@
 
 Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 5). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
 
-### 
+### Chapter 2: The first Dharma Talk
+
+**Dharma** 
+
+ 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTg4ODY1Mzc3MywxMzgyMzI1OTY2XX0=
+eyJoaXN0b3J5IjpbLTE5MzQyMjk3NTUsMTM4MjMyNTk2Nl19
 -->
