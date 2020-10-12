@@ -3,6 +3,7 @@
 
 ### Chapter 1: Entering the heart of the Buddha
 
+Suffering is the primary gateway to advancement.  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTkyNzY4Mzc2OF19
+eyJoaXN0b3J5IjpbLTk1NzAxNzYxMV19
 -->
