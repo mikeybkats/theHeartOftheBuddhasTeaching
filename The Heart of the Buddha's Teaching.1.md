@@ -16,7 +16,7 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 5). Potter/Ten Speed/Ha
 **Dharma** - The way of understanding and love.
 
 **Four Noble Truths:**
-	- the existence of suffering
+	- the existnce of suffering
 	- the making of suffering
 	- the possibility of restoring well being
 	- and the Noble Eightfold Path that leads to well being 
@@ -39,6 +39,7 @@ The second noble truth is origin, nature, creation and arising of suffering.
 Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 9). Potter/Ten Speed/Harmony/Rodale. Kindle Edition.   
 ```
 
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTA5MDcyNTExNl19
+eyJoaXN0b3J5IjpbLTU0Njk2ODc2M119
 -->
