@@ -21,7 +21,7 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 5). Potter/Ten Speed/Ha
 
 Identifying suffering, it's causes and the path forward offers liberation to the followers of this philosophy.
 
-
+**The teaching of the middle way** - Austerity is not the way. Avoiding our problems is not the way. 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE0ODU1NDA1MTksMTM4MjMyNTk2Nl19
+eyJoaXN0b3J5IjpbLTM1Nzk3NTkyNywxMzgyMzI1OTY2XX0=
 -->
