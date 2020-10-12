@@ -3,7 +3,10 @@
 
 ### Chapter 1: Entering the heart of the Buddha
 
-Suffering is the primary gateway to advancement.  
+**Suffering** is the primary gateway to advancement. Buddha has said, "Because there is suffering in your heart, it is possible for you to enter my heart."
+
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTk1NzAxNzYxMSwxMzgyMzI1OTY2XX0=
+eyJoaXN0b3J5IjpbMTgyMTcyMjI3OCwxMzgyMzI1OTY2XX0=
 -->
