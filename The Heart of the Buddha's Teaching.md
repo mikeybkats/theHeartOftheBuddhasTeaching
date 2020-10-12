@@ -29,9 +29,9 @@ Identifying suffering, it's causes and the path forward offers liberation to the
 
 ### Chapter 3: The Four Noble Truths
 
-The first noble truth is Suffering (dukkha). The Chinese character for this translates as "bitter".
+*The first noble truth is Suffering (dukkha).* The Chinese character for this translates as "bitter".
 
-The second noble truth is origin, nature, creation and arising of suffering. 
+*The second noble truth is origin, nature, creation and arising of suffering.*
 
 ```
 "After we touch our suffering, we need to look deeply into it to see how it came to be."
@@ -41,6 +41,6 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 9). Potter/Ten Speed/Ha
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTU0Njk2ODc2MywtMTc0NzY3NTM5Miw5OD
-A0NDYzOTAsMTM4MjMyNTk2Nl19
+eyJoaXN0b3J5IjpbMTE2MjAwNDE2MywtNTQ2OTY4NzYzLC0xNz
+Q3Njc1MzkyLDk4MDQ0NjM5MCwxMzgyMzI1OTY2XX0=
 -->
