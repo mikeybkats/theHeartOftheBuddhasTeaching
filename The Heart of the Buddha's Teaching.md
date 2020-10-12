@@ -18,6 +18,10 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 5). Potter/Ten Speed/Ha
 	- the making of suffering
 	- the possibility of restoring well being
 	- and the Noble Eightfold Path that leads to well being 
+
+Identifying suffering, it's causes and the path forward offers liberation to the followers of this philosophy.
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTQ5NjUzNzU4NiwxMzgyMzI1OTY2XX0=
+eyJoaXN0b3J5IjpbLTE0ODU1NDA1MTksMTM4MjMyNTk2Nl19
 -->
