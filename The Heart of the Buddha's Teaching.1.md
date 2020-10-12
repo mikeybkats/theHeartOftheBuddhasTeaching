@@ -5,9 +5,11 @@
 
 **Suffering** is the primary gateway to advancement. Buddha has said, "Because there is suffering in your heart, it is possible for you to enter my heart."
 
+```
 "Without suffering, you cannot grow. Without suffering, you cannot get the peace and joy you deserve. Please don’t run away from your suffering. Embrace it and cherish it."
 
 Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 5). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
+```
 
 ### Chapter 2: The first Dharma Talk
 
@@ -29,9 +31,14 @@ Identifying suffering, it's causes and the path forward offers liberation to the
 
 The first noble truth is Suffering (dukkha). The Chinese character for this translates as "bitter".
 
-The second noble truth is creation a 
+The second noble truth is origin, nature, creation and arising of suffering. 
 
+```
+"After we touch our suffering, we need to look deeply into it to see how it came to be."
+
+Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 9). Potter/Ten Speed/Harmony/Rodale. Kindle Edition.   
+```
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIwOTc2OTI5Ml19
+eyJoaXN0b3J5IjpbMTA5MDcyNTExNl19
 -->
