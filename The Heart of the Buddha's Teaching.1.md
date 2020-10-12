@@ -11,7 +11,7 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 5). Potter/Ten Speed/Ha
 
 ### Chapter 2: The first Dharma Talk
 
-**Dharma** 
+**Dharma** - The way of understanding and love.
 
 **Four Noble Truths:**
 	- the existance of suffering
@@ -21,9 +21,12 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 5). Potter/Ten Speed/Ha
 
 Identifying suffering, its causes and the path forward offers liberation to the followers of this philosophy.
 
-**The teaching of the middle way** - Austerity is not the way. Pretending and abstaining from all vice is not the way. Avoiding our problems is not the way. Indulging in vice like sex, fame and drugs is also not the way. The middle way is the way to acknowledge these things and process them. 
+**The teaching of the middle way** - Austerity is not the way. Pretending and abstaining from all vice is not the way. Avoiding our problems is not the way. Indulging in vice like sex, fame and drugs is also not the way. The middle way is the way to acknowledge these things and process them. P.6
 
-Recognizing suffering lets us transform it into mindfulness, passion,  
+*Recognizing suffering lets us transform it into mindfulness, compassion, peace and liberation.* P.7
+
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTUwMzQ4ODQxNV19
+eyJoaXN0b3J5IjpbLTE3NDg2OTUwNThdfQ==
 -->
