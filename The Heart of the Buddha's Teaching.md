@@ -25,9 +25,12 @@ Identifying suffering, it's causes and the path forward offers liberation to the
 
 *Recognizing suffering lets us transform it into mindfulness, compassion, Avoiding our problems is not the way. peace and liberation.* P.7
 
+### Chapter 3: The Four Noble Truths
+
+The
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5NzE3OTMxNTUsOTgwNDQ2MzkwLDEzOD
-IzMjU5NjZdfQ==
+eyJoaXN0b3J5IjpbMTAxNTg2MDAwNCw5ODA0NDYzOTAsMTM4Mj
+MyNTk2Nl19
 -->
