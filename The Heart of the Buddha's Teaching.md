@@ -1,8 +1,8 @@
 # The Heart of the Buddha's Teaching
 ### Thich Nhat Han
 
-### Chapter 1: Entering the heart of Buddh
+### Chapter 1: Entering the heart of the Buddha
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3MDE5NDUwMzIsMTM4MjMyNTk2Nl19
+eyJoaXN0b3J5IjpbLTkyNzY4Mzc2OCwxMzgyMzI1OTY2XX0=
 -->
