@@ -35,7 +35,7 @@ Identifying suffering, it's causes and the path forward offers liberation to the
 We have to recognize our suffering, acknowledge those feelings in order to process it and progress from it.
 
 #### Truth 2: Creation of Suffering
-*Samudaya* – The second noble truth is the origin, nature, creation and arising of suffering. 
+*Samudaya* – The second noble truth is the origin, nature, creation and arising of suffering.
 ```
 "After we touch our suffering, we need to look deeply into it to see how it came to be."
 
@@ -55,9 +55,17 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 11). Potter/Ten Speed/H
 
 #### Truth 4: The path that leads to refraining from the things that we do that make us suffer
 
-*marga* - the Noble Eightfold Path. 
+*marga* - the Noble eightfold path. The path of eight practices: 
+
+	1.Right view
+	2.Right thinking
+	3.Right speech
+	4.Right action
+	5.Right livelihood
+	6.R
+	 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTkyNjk0MTY4NywxOTQ4MDk3NTUxLDU0MT
-kxNjkwNCwxMTM0Mjg3MzE3LDExNjIwMDQxNjMsLTU0Njk2ODc2
-M119
+eyJoaXN0b3J5IjpbLTE5MDY0NzE1NDAsLTkyNjk0MTY4NywxOT
+Q4MDk3NTUxLDU0MTkxNjkwNCwxMTM0Mjg3MzE3LDExNjIwMDQx
+NjMsLTU0Njk2ODc2M119
 -->
