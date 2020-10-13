@@ -42,9 +42,9 @@ We have to recognize our suffering, acknowledge those feelings in order to proce
 Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 9). Potter/Ten Speed/Harmony/Rodale. Kindle Edition.   
 ```
 
-After recognizing that there is suffering, we need to think about why it's really there. How did you come to a place where this suffering exists?
+After recognizing that there is suffering, we need to think about why it's really there. What did you do to lead you to this place? What toxins from the world (television, media, news, ideas, food, alcohol, drugs) have you consumed?
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTA4Nzg3Njk1NywxMTM0Mjg3MzE3LDExNj
-IwMDQxNjMsLTU0Njk2ODc2M119
+eyJoaXN0b3J5IjpbNTQxOTE2OTA0LDExMzQyODczMTcsMTE2Mj
+AwNDE2MywtNTQ2OTY4NzYzXX0=
 -->
