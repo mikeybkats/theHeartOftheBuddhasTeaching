@@ -62,10 +62,19 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 11). Potter/Ten Speed/H
 	3.Right speech
 	4.Right action
 	5.Right livelihood
-	6.Right di
+	6.Right diligence
+	7.Right mindfulness
+	8.Right concentration
+
+What does it mean to practice in the right way? It means 
+```
+“straight,” or “upright,” not bent or crooked. Right Mindfulness, for example, means that there are ways of being mindful that are right, straight, and beneficial. Wrong mindfulness means that there are ways to practice that are wrong, crooked, and unbeneficial.
+
+Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 11). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
+```
 	 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTYzMTAwODUzNSwtOTcxMzY4ODY0LC05Mj
+eyJoaXN0b3J5IjpbMTg5ODQxMjEzMCwtOTcxMzY4ODY0LC05Mj
 Y5NDE2ODcsLTE4ODI4OTYzMTMsMTk0ODA5NzU1MSw1NDE5MTY5
 MDQsMTEzNDI4NzMxNywxMTYyMDA0MTYzLC01NDY5Njg3NjMsLT
 E3NDc2NzUzOTIsOTgwNDQ2MzkwLDEzODIzMjU5NjZdfQ==
