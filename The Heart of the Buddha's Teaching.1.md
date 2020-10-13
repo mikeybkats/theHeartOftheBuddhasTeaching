@@ -39,9 +39,7 @@ Identifying suffering, it's causes and the path forward offers liberation to the
 Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 9). Potter/Ten Speed/Harmony/Rodale. Kindle Edition.   
 ```
 
-type new stuff
-
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEzNzk5NTgxMDksMTE2MjAwNDE2MywtNT
-Q2OTY4NzYzXX0=
+eyJoaXN0b3J5IjpbMTEzNDI4NzMxNywxMTYyMDA0MTYzLC01ND
+Y5Njg3NjNdfQ==
 -->
