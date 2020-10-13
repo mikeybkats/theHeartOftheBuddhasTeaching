@@ -53,9 +53,11 @@ The Buddha taught us how to recognize and acknowledge the presence of suffering,
 Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 11). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
 ```
 
-#### Truth 4: The path that leads to the release of 
+#### Truth 4: The path that leads to refraining from the things that we do that make us suffer
+
+*marga* - the Noble Eightfold Path. 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTA5NTE0ODA2LDE5NDgwOTc1NTEsNTQxOT
-E2OTA0LDExMzQyODczMTcsMTE2MjAwNDE2MywtNTQ2OTY4NzYz
-XX0=
+eyJoaXN0b3J5IjpbLTkyNjk0MTY4NywxOTQ4MDk3NTUxLDU0MT
+kxNjkwNCwxMTM0Mjg3MzE3LDExNjIwMDQxNjMsLTU0Njk2ODc2
+M119
 -->
