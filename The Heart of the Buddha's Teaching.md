@@ -45,9 +45,10 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 9). Potter/Ten Speed/Ha
 After recognizing that there is suffering, we need to think about why it's really there. What did you do to lead you to this place? What toxins from the world (television, media, news, ideas, food, alcohol, drugs) have you consumed?
 
 #### Truth 3:  Bringing the creation our suffering to an end
-Ending our suffering requires refraining from the things that make us suffer. 
+Ending our suffering requires refraining from the things that make us suffer.means t 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTk0ODA5NzU1MSw1NDE5MTY5MDQsMTEzND
-I4NzMxNywxMTYyMDA0MTYzLC01NDY5Njg3NjMsLTE3NDc2NzUz
-OTIsOTgwNDQ2MzkwLDEzODIzMjU5NjZdfQ==
+eyJoaXN0b3J5IjpbLTE4ODI4OTYzMTMsMTk0ODA5NzU1MSw1ND
+E5MTY5MDQsMTEzNDI4NzMxNywxMTYyMDA0MTYzLC01NDY5Njg3
+NjMsLTE3NDc2NzUzOTIsOTgwNDQ2MzkwLDEzODIzMjU5NjZdfQ
+==
 -->
