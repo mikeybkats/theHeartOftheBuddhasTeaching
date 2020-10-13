@@ -35,7 +35,7 @@ Identifying suffering, it's causes and the path forward offers liberation to the
 We have to recognize our suffering, acknowledge those feelings in order to process it and progress from it.
 
 #### Truth 2: Creation of Suffering
-*The second noble truth is the origin, nature, creation and arising of suffering.*
+*Samudaya* – The second noble truth is the origin, nature, creation and arising of suffering. 
 ```
 "After we touch our suffering, we need to look deeply into it to see how it came to be."
 
@@ -45,7 +45,7 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 9). Potter/Ten Speed/Ha
 After recognizing that there is suffering, we need to think about why it's really there. What did you do to lead you to this place? What toxins from the world (television, media, news, ideas, food, alcohol, drugs) have you consumed?
 
 #### Truth 3:  Bringing the creation our suffering to an end
-Ending our suffering – *nirodha* – requires refraining from the things that make us suffer. 
+Ending our suffering – *nirodha* – requires refraining from the things that make us suffer.means t  
 
 ```
 The Buddha taught us how to recognize and acknowledge the presence of suffering, but he also taught the cessation of suffering. If there were no possibility of cessation, what is the use of practicing? The Third Truth is that healing is possible.
@@ -53,9 +53,9 @@ The Buddha taught us how to recognize and acknowledge the presence of suffering,
 Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 11). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
 ```
 
-
+#### Truth 4: The path that leads to the release of 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5NDc3MzAyNTMsMTk0ODA5NzU1MSw1ND
-E5MTY5MDQsMTEzNDI4NzMxNywxMTYyMDA0MTYzLC01NDY5Njg3
-NjNdfQ==
+eyJoaXN0b3J5IjpbOTA5NTE0ODA2LDE5NDgwOTc1NTEsNTQxOT
+E2OTA0LDExMzQyODczMTcsMTE2MjAwNDE2MywtNTQ2OTY4NzYz
+XX0=
 -->
