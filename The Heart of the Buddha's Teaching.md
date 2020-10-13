@@ -44,8 +44,9 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 9). Potter/Ten Speed/Ha
 
 After recognizing that there is suffering, we need to think about why it's really there. What did you do to lead you to this place? What toxins from the world (television, media, news, ideas, food, alcohol, drugs) have you consumed?
 
+#### Truth 3:  Bringing the creation our suffering to an end 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNTQxOTE2OTA0LDExMzQyODczMTcsMTE2Mj
-AwNDE2MywtNTQ2OTY4NzYzLC0xNzQ3Njc1MzkyLDk4MDQ0NjM5
-MCwxMzgyMzI1OTY2XX0=
+eyJoaXN0b3J5IjpbNTY4MzAyMTU2LDU0MTkxNjkwNCwxMTM0Mj
+g3MzE3LDExNjIwMDQxNjMsLTU0Njk2ODc2MywtMTc0NzY3NTM5
+Miw5ODA0NDYzOTAsMTM4MjMyNTk2Nl19
 -->
