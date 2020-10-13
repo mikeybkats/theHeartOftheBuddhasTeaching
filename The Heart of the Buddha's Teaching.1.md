@@ -55,7 +55,7 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 11). Potter/Ten Speed/H
 
 #### Truth 4: The path that leads to refraining from the things that we do that make us suffer
 
-*marga* - the Noble eightfold path. The path of eight practices: 
+*marga* - the Noble ightfold ath. The path of eight practices: 
 
 	1.Right view
 	2.Right thinking
@@ -75,7 +75,7 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 11). Potter/Ten Speed/H
 	 
 ### Chapter 4: Understanding the Buddha's teachings
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTEyOTIzNDcxNywtOTI2OTQxNjg3LDE5ND
+eyJoaXN0b3J5IjpbMTQ1MTA2NTQyNiwtOTI2OTQxNjg3LDE5ND
 gwOTc1NTEsNTQxOTE2OTA0LDExMzQyODczMTcsMTE2MjAwNDE2
 MywtNTQ2OTY4NzYzXX0=
 -->
