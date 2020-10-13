@@ -45,8 +45,17 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 9). Potter/Ten Speed/Ha
 After recognizing that there is suffering, we need to think about why it's really there. What did you do to lead you to this place? What toxins from the world (television, media, news, ideas, food, alcohol, drugs) have you consumed?
 
 #### Truth 3:  Bringing the creation our suffering to an end
-Ending our suffering requires refraining from the things that make us suffer. 
+Ending our suffering – *nirodha* – requires refraining from the things that make us suffer. 
+
+```
+The Buddha taught us how to recognize and acknowledge the presence of suffering, but he also taught the cessation of suffering. If there were no possibility of cessation, what is the use of practicing? The Third Truth is that healing is possible.
+
+Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 11). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
+```
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTk0ODA5NzU1MSw1NDE5MTY5MDQsMTEzND
-I4NzMxNywxMTYyMDA0MTYzLC01NDY5Njg3NjNdfQ==
+eyJoaXN0b3J5IjpbLTE5NDc3MzAyNTMsMTk0ODA5NzU1MSw1ND
+E5MTY5MDQsMTEzNDI4NzMxNywxMTYyMDA0MTYzLC01NDY5Njg3
+NjNdfQ==
 -->
