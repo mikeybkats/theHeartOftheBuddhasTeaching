@@ -89,10 +89,10 @@ Since the original Buddha's death. There have been three schools of Buddhism:
 	- Many Schools Buddhism: different schools that have divided on how to interpret and extend the teachings of Buddha
 	- Mahayana Buddhism:
 
-Oddly, it was four hundred years before any of the Buddha's teachings were even thought to be written down. Before then his teachings were only passed orally. When finally the monks of Sri Lanka who wear the copper colored robes started to think about writing Buddha's discourses on palm leaves it took them ano 
+Oddly, it was four hundred years before any of the Buddha's teachings were even thought to be written down. Before then his teachings were only passed orally. When finally the monks of Sri Lanka who wear the copper colored robes started to think about writing Buddha's discourses on palm leaves it took them another one hundred years to begin. 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTY1MTk1ODc2OCwtMTA5OTcwNzMxNCw3ND
-I0NTI1NDEsNjQzMDg4ODk2LDE0NTEwNjU0MjYsLTkyNjk0MTY4
-NywxOTQ4MDk3NTUxLDU0MTkxNjkwNCwxMTM0Mjg3MzE3LDExNj
-IwMDQxNjMsLTU0Njk2ODc2M119
+eyJoaXN0b3J5IjpbOTYyMTI5NzMzLC0xMDk5NzA3MzE0LDc0Mj
+Q1MjU0MSw2NDMwODg4OTYsMTQ1MTA2NTQyNiwtOTI2OTQxNjg3
+LDE5NDgwOTc1NTEsNTQxOTE2OTA0LDExMzQyODczMTcsMTE2Mj
+AwNDE2MywtNTQ2OTY4NzYzXX0=
 -->
