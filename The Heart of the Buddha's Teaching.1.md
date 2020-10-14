@@ -91,10 +91,10 @@ Since the original Buddha's death. There have been three schools of Buddhism:
 
 Oddly, it was four hundred years before any of the Buddha's teachings were even thought to be written down. Before then his teachings were only passed orally. When finally the monks of Sri Lanka who wear the copper colored robes started to think about writing Buddha's discourses on palm leaves it took them another one hundred years to begin. And, during this time there was only one monk who had memorized all the discourses, and he was known to be very arrogant (not the best vehicle to transmit the teachings of the Great Buddha).
 
-Many of the monks who knew the words of the teachings were not able to comprehend their full meanings. Often the lessons the 
+Many of the monks who knew the words of the teachings were not able to comprehend their full meanings. Often the lessons they took from these teachings were incorrect. There are cases where the lessons of Buddha became distorted. One story relates a discourse where Buddha describes himself buckling down and "gritting his teeth and holding his tongue against his palate" to get the better of his o 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE0NTc4MjA2NDMsLTEwOTk3MDczMTQsNz
-QyNDUyNTQxLDY0MzA4ODg5NiwxNDUxMDY1NDI2LC05MjY5NDE2
-ODcsMTk0ODA5NzU1MSw1NDE5MTY5MDQsMTEzNDI4NzMxNywxMT
-YyMDA0MTYzLC01NDY5Njg3NjNdfQ==
+eyJoaXN0b3J5IjpbMTIyMDg1NjU5NiwtMTA5OTcwNzMxNCw3ND
+I0NTI1NDEsNjQzMDg4ODk2LDE0NTEwNjU0MjYsLTkyNjk0MTY4
+NywxOTQ4MDk3NTUxLDU0MTkxNjkwNCwxMTM0Mjg3MzE3LDExNj
+IwMDQxNjMsLTU0Njk2ODc2M119
 -->
