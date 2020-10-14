@@ -74,10 +74,11 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 11). Potter/Ten Speed/H
 ```
 	 
 ### Chapter 4: Understanding the Buddha's teachings
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTQ1MTA2NTQyNiwyMTEzOTMyNTM3LC05Nz
-EzNjg4NjQsLTkyNjk0MTY4NywtMTg4Mjg5NjMxMywxOTQ4MDk3
-NTUxLDU0MTkxNjkwNCwxMTM0Mjg3MzE3LDExNjIwMDQxNjMsLT
-U0Njk2ODc2MywtMTc0NzY3NTM5Miw5ODA0NDYzOTAsMTM4MjMy
-NTk2Nl19
+eyJoaXN0b3J5IjpbNjQzMDg4ODk2LDE0NTEwNjU0MjYsMjExMz
+kzMjUzNywtOTcxMzY4ODY0LC05MjY5NDE2ODcsLTE4ODI4OTYz
+MTMsMTk0ODA5NzU1MSw1NDE5MTY5MDQsMTEzNDI4NzMxNywxMT
+YyMDA0MTYzLC01NDY5Njg3NjMsLTE3NDc2NzUzOTIsOTgwNDQ2
+MzkwLDEzODIzMjU5NjZdfQ==
 -->
