@@ -74,13 +74,14 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 11). Potter/Ten Speed/H
 ```
 	 
 ### Chapter 4: Understanding the Buddha's teachings
-```
+`
+`
 Usually when we hear or read something new, we just compare it to our own ideas. If it is the same, we accept it and say that it is correct. If it is not, we say it is incorrect. In either case, we learn nothing. If we read or listen with an open mind and an open heart, the rain of the Dharma will penetrate the soil of our consciousness.
 
 Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 12). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
-```
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIwMzU1OTI5MzMsNjQzMDg4ODk2LDE0NT
-EwNjU0MjYsLTkyNjk0MTY4NywxOTQ4MDk3NTUxLDU0MTkxNjkw
-NCwxMTM0Mjg3MzE3LDExNjIwMDQxNjMsLTU0Njk2ODc2M119
+eyJoaXN0b3J5IjpbLTY1MzQ3OTQ2NSw2NDMwODg4OTYsMTQ1MT
+A2NTQyNiwtOTI2OTQxNjg3LDE5NDgwOTc1NTEsNTQxOTE2OTA0
+LDExMzQyODczMTcsMTE2MjAwNDE2MywtNTQ2OTY4NzYzXX0=
 -->
