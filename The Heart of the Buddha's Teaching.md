@@ -81,9 +81,9 @@ Usually when we hear or read something new, we just compare it to our own ideas.
 Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 12). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
 ```
 
-
+Reading and listening should not feel difficult. Do now "try hard" to read or listen, try to allow the information to flow into you.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNDAwMzA2MDg1LDY0MzA4ODg5NiwxNDUxMD
+eyJoaXN0b3J5IjpbNzQyNDUyNTQxLDY0MzA4ODg5NiwxNDUxMD
 Y1NDI2LDIxMTM5MzI1MzcsLTk3MTM2ODg2NCwtOTI2OTQxNjg3
 LC0xODgyODk2MzEzLDE5NDgwOTc1NTEsNTQxOTE2OTA0LDExMz
 QyODczMTcsMTE2MjAwNDE2MywtNTQ2OTY4NzYzLC0xNzQ3Njc1
