@@ -93,10 +93,10 @@ Oddly, it was four hundred years before any of the Buddha's teachings were even 
 
 Many of the monks who knew the words of the teachings were not able to comprehend their full meanings. Often the lessons they took from these teachings were incorrect. There are cases where the lessons of Buddha became distorted. One story relates a discourse where Buddha describes himself buckling down and "gritting his teeth and holding his tongue against his palate" to get the better of his own mind. He was however not referring to how to practice, he was referring to his misguided years where he was still learning, and this practice is not intended doctrine. P13
 
-By the time the discourses were written down in Pali in Sri Lanka there were eighteen or twenty schools that had interpreted the teachings in different ways – but importantly the lessons derived are . 
+By the time the discourses were written down in Pali in Sri Lanka there were eighteen or twenty schools that had interpreted the teachings in different ways – but importantly the lessons derived are the same. The variations exist, but the morals are the same. P15 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTk0MDQwNDg2MSwtMTA5OTcwNzMxNCw3ND
-I0NTI1NDEsNjQzMDg4ODk2LDE0NTEwNjU0MjYsLTkyNjk0MTY4
-NywxOTQ4MDk3NTUxLDU0MTkxNjkwNCwxMTM0Mjg3MzE3LDExNj
-IwMDQxNjMsLTU0Njk2ODc2M119
+eyJoaXN0b3J5IjpbODkzNDI0NDIzLC0xMDk5NzA3MzE0LDc0Mj
+Q1MjU0MSw2NDMwODg4OTYsMTQ1MTA2NTQyNiwtOTI2OTQxNjg3
+LDE5NDgwOTc1NTEsNTQxOTE2OTA0LDExMzQyODczMTcsMTE2Mj
+AwNDE2MywtNTQ2OTY4NzYzXX0=
 -->
