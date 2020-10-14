@@ -83,10 +83,16 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 12). Potter/Ten Speed/H
 ```
 
 Reading and listening should not feel difficult. Do now "try hard" to read or listen, try to allow the information to flow into you.
+
+Since the original Buddha's death. There have been three schools of Buddhism:
+
+	- Source Buddhism: the teachings from Buddha during his lifetime
+	- Many Schools Buddhism: the 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTIzNDI0MjM1LDc0MjQ1MjU0MSw2NDMwOD
-g4OTYsMTQ1MTA2NTQyNiwyMTEzOTMyNTM3LC05NzEzNjg4NjQs
-LTkyNjk0MTY4NywtMTg4Mjg5NjMxMywxOTQ4MDk3NTUxLDU0MT
-kxNjkwNCwxMTM0Mjg3MzE3LDExNjIwMDQxNjMsLTU0Njk2ODc2
-MywtMTc0NzY3NTM5Miw5ODA0NDYzOTAsMTM4MjMyNTk2Nl19
+eyJoaXN0b3J5IjpbLTI5MzczNzQ0NiwxMjM0MjQyMzUsNzQyND
+UyNTQxLDY0MzA4ODg5NiwxNDUxMDY1NDI2LDIxMTM5MzI1Mzcs
+LTk3MTM2ODg2NCwtOTI2OTQxNjg3LC0xODgyODk2MzEzLDE5ND
+gwOTc1NTEsNTQxOTE2OTA0LDExMzQyODczMTcsMTE2MjAwNDE2
+MywtNTQ2OTY4NzYzLC0xNzQ3Njc1MzkyLDk4MDQ0NjM5MCwxMz
+gyMzI1OTY2XX0=
 -->
