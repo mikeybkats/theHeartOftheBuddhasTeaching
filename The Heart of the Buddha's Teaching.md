@@ -89,16 +89,16 @@ Since the original Buddha's death. There have been three schools of Buddhism:
 	- Many Schools Buddhism: different schools that have divided on how to interpret and extend the teachings of Buddha
 	- Mahayana Buddhism:
 
-Oddly, it was four hundred years before any of the Buddha's teachings were even thought to be written down. Before then his teachings were only passed orally. When finally the monks of Sri Lanka who wear the copper colored robes started to think about writing Buddha's discourses on palm leaves it took them another one hundred years to begin. And, during this time there was only one monk who had memorized all the discourses, and he was known to be very arrogant (not the best vehicle to transmit the teachings of the Great Buddha).
+Oddly, it was four hundred years before any of the Buddha's teachings were even thought to be written down. Before then his teachings were only passed orally. When finally the monks of Sri Lanka who wear the copper colored robes started to think about writing Buddha's discourses on palm leaves it took them another one hundred years to begin. And, during this time there was only one monk who had memorized all the discourses, and he was known to be very arrogant (not the best vehicle to transmit the teachings of the Great Buddha). P12-13
 
-Many of the monks who knew the words of the teachings were not able to comprehend their full meanings. Often the lessons they took from these teachings were incorrect. There are cases where the lessons of Buddha became distorted. One story relates a discourse where Buddha describes himself buckling down and "gritting his teeth and holding his tongue against his palate" to get the better of his own mind. He was however not referring to how to practice, he was referring to his misguided years where he was still learning, and this practice is not intended doctrine.
+Many of the monks who knew the words of the teachings were not able to comprehend their full meanings. Often the lessons they took from these teachings were incorrect. There are cases where the lessons of Buddha became distorted. One story relates a discourse where Buddha describes himself buckling down and "gritting his teeth and holding his tongue against his palate" to get the better of his own mind. He was however not referring to how to practice, he was referring to his misguided years where he was still learning, and this practice is not intended doctrine. P13
 
-By the time the discourses were written down in Pali in Sri Lanka there were eighteen or twenty schools
+By the time the discourses were written down in Pali in Sri Lanka there were eighteen or twenty schools that had interpreted the teachings in different ways – but importantly the lessons derived are the same. 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE2ODM2NzY5MDAsLTEwOTk3MDczMTQsLT
-I5MzczNzQ0NiwxMjM0MjQyMzUsNzQyNDUyNTQxLDY0MzA4ODg5
-NiwxNDUxMDY1NDI2LDIxMTM5MzI1MzcsLTk3MTM2ODg2NCwtOT
-I2OTQxNjg3LC0xODgyODk2MzEzLDE5NDgwOTc1NTEsNTQxOTE2
-OTA0LDExMzQyODczMTcsMTE2MjAwNDE2MywtNTQ2OTY4NzYzLC
-0xNzQ3Njc1MzkyLDk4MDQ0NjM5MCwxMzgyMzI1OTY2XX0=
+eyJoaXN0b3J5IjpbLTE0MjE1MzE3MCwtMTA5OTcwNzMxNCwtMj
+kzNzM3NDQ2LDEyMzQyNDIzNSw3NDI0NTI1NDEsNjQzMDg4ODk2
+LDE0NTEwNjU0MjYsMjExMzkzMjUzNywtOTcxMzY4ODY0LC05Mj
+Y5NDE2ODcsLTE4ODI4OTYzMTMsMTk0ODA5NzU1MSw1NDE5MTY5
+MDQsMTEzNDI4NzMxNywxMTYyMDA0MTYzLC01NDY5Njg3NjMsLT
+E3NDc2NzUzOTIsOTgwNDQ2MzkwLDEzODIzMjU5NjZdfQ==
 -->
