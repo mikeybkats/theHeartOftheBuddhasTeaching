@@ -87,12 +87,13 @@ Reading and listening should not feel difficult. Do now "try hard" to read or li
 Since the original Buddha's death. There have been three schools of Buddhism:
 
 	- Source Buddhism: the teachings from Buddha during his lifetime
-	- Many Schools Buddhism: the 
+	- Many Schools Buddhism: different schools that have divided on how to interpret and extend the teachings of Buddha
+	- Mahayana Buddhism: 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTI5MzczNzQ0NiwxMjM0MjQyMzUsNzQyND
-UyNTQxLDY0MzA4ODg5NiwxNDUxMDY1NDI2LDIxMTM5MzI1Mzcs
-LTk3MTM2ODg2NCwtOTI2OTQxNjg3LC0xODgyODk2MzEzLDE5ND
-gwOTc1NTEsNTQxOTE2OTA0LDExMzQyODczMTcsMTE2MjAwNDE2
-MywtNTQ2OTY4NzYzLC0xNzQ3Njc1MzkyLDk4MDQ0NjM5MCwxMz
-gyMzI1OTY2XX0=
+eyJoaXN0b3J5IjpbLTEwOTk3MDczMTQsLTI5MzczNzQ0NiwxMj
+M0MjQyMzUsNzQyNDUyNTQxLDY0MzA4ODg5NiwxNDUxMDY1NDI2
+LDIxMTM5MzI1MzcsLTk3MTM2ODg2NCwtOTI2OTQxNjg3LC0xOD
+gyODk2MzEzLDE5NDgwOTc1NTEsNTQxOTE2OTA0LDExMzQyODcz
+MTcsMTE2MjAwNDE2MywtNTQ2OTY4NzYzLC0xNzQ3Njc1MzkyLD
+k4MDQ0NjM5MCwxMzgyMzI1OTY2XX0=
 -->
