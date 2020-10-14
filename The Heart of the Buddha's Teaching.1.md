@@ -75,8 +75,7 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 11). Potter/Ten Speed/H
 	 
 ### Chapter 4: Understanding the Buddha's teachings
 
-``
-`
+```
 Usually when we hear or read something new, we just compare it to our own ideas. If it is the same, we accept it and say that it is correct. If it is not, we say it is incorrect. In either case, we learn nothing. If we read or listen with an open mind and an open heart, the rain of the Dharma will penetrate the soil of our consciousness.
 
 Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 12). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
@@ -88,10 +87,12 @@ Since the original Buddha's death. There have been three schools of Buddhism:
 
 	- Source Buddhism: the teachings from Buddha during his lifetime
 	- Many Schools Buddhism: different schools that have divided on how to interpret and extend the teachings of Buddha
-	- Mahayana Buddhism: 
+	- Mahayana Buddhism:
+
+Oddly, it was four hundred years before any of the Buddha's teachings were written down. Before then his teachings were only passed orally. 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEwOTk3MDczMTQsNzQyNDUyNTQxLDY0Mz
-A4ODg5NiwxNDUxMDY1NDI2LC05MjY5NDE2ODcsMTk0ODA5NzU1
-MSw1NDE5MTY5MDQsMTEzNDI4NzMxNywxMTYyMDA0MTYzLC01ND
-Y5Njg3NjNdfQ==
+eyJoaXN0b3J5IjpbLTg1NzE2NDk0NywtMTA5OTcwNzMxNCw3ND
+I0NTI1NDEsNjQzMDg4ODk2LDE0NTEwNjU0MjYsLTkyNjk0MTY4
+NywxOTQ4MDk3NTUxLDU0MTkxNjkwNCwxMTM0Mjg3MzE3LDExNj
+IwMDQxNjMsLTU0Njk2ODc2M119
 -->
