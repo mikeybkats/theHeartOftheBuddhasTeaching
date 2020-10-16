@@ -105,13 +105,13 @@ The third school, – Mahayana – of Buddhism, began in the third century B.C.E
 Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 17). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
 ```
 
-One of the    
+One of the most important lessons of Buddhism is in fact not to be overly focused on the words. In fact, it was the Buddha who said to his disciples, "For forty five years, I have not uttered a single word." His meaning was that the words themselves should not present an iron clad theory for    
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTk0NzU3NTg4LDk2NjY1ODM3NCwtMzI1Nj
-gwMjkwLDg5MzQyNDQyMywtMTA5OTcwNzMxNCwtMjkzNzM3NDQ2
-LDEyMzQyNDIzNSw3NDI0NTI1NDEsNjQzMDg4ODk2LDE0NTEwNj
-U0MjYsMjExMzkzMjUzNywtOTcxMzY4ODY0LC05MjY5NDE2ODcs
-LTE4ODI4OTYzMTMsMTk0ODA5NzU1MSw1NDE5MTY5MDQsMTEzND
-I4NzMxNywxMTYyMDA0MTYzLC01NDY5Njg3NjMsLTE3NDc2NzUz
-OTJdfQ==
+eyJoaXN0b3J5IjpbLTE5Nzg4OTU5NDYsOTY2NjU4Mzc0LC0zMj
+U2ODAyOTAsODkzNDI0NDIzLC0xMDk5NzA3MzE0LC0yOTM3Mzc0
+NDYsMTIzNDI0MjM1LDc0MjQ1MjU0MSw2NDMwODg4OTYsMTQ1MT
+A2NTQyNiwyMTEzOTMyNTM3LC05NzEzNjg4NjQsLTkyNjk0MTY4
+NywtMTg4Mjg5NjMxMywxOTQ4MDk3NTUxLDU0MTkxNjkwNCwxMT
+M0Mjg3MzE3LDExNjIwMDQxNjMsLTU0Njk2ODc2MywtMTc0NzY3
+NTM5Ml19
 -->
