@@ -97,9 +97,9 @@ By the time the discourses were written down in Pali in Sri Lanka there were eig
 
 The third school, – Mahayana – of Buddhism, began in the third century B.C.E when some monks decided to divorce themselves from the rest of society. People from their lay Buddhist communities (those who identified as Buddhist but were not monks)communities helped to support them. And, although the Mahayanay lived a life away from society the they had the effect of inspiring the laypeople (and themselves) to develop reviving the contact of Buddhism in regular life. P16
 
-   
+  The three streams of Buddhism compliment each other. And, each school looks into the old teachings and explores some of the forgotten or misunderstood lessons of the past. 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTMyNTY4MDI5MCwtNzUwMTE0MjgyLDg5Mz
+eyJoaXN0b3J5IjpbLTgyMTY1ODAxNSwtMzI1NjgwMjkwLDg5Mz
 QyNDQyMywtMTA5OTcwNzMxNCwtMjkzNzM3NDQ2LDEyMzQyNDIz
 NSw3NDI0NTI1NDEsNjQzMDg4ODk2LDE0NTEwNjU0MjYsMjExMz
 kzMjUzNywtOTcxMzY4ODY0LC05MjY5NDE2ODcsLTE4ODI4OTYz
