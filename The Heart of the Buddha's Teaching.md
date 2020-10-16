@@ -97,13 +97,21 @@ By the time the discourses were written down in Pali in Sri Lanka there were eig
 
 The third school, – Mahayana – of Buddhism, began in the third century B.C.E when some monks decided to divorce themselves from the rest of society. People from their lay Buddhist communities (those who identified as Buddhist but were not monks)communities helped to support them. And, although the Mahayanay lived a life away from society the they had the effect of inspiring the laypeople (and themselves) to develop reviving the contact of Buddhism in regular life. P16
 
-  The three streams of Buddhism compliment each other. And, each school looks into the old teachings and explores some of the forgotten or misunderstood lessons of the past. 
+  The three streams of Buddhism compliment each other. And, each school looks into the old teachings and explores some of the forgotten or misunderstood lessons of the past. Buddha made of point of saying that his sutras were not direct insights in of themselves, but lessons to extract meaning from. P17
+
+```
+“My teaching is like a finger pointing to the moon. Do not mistake the finger for the moon.”
+
+Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 17). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
+```
+
+   
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTgyMTY1ODAxNSwtMzI1NjgwMjkwLDg5Mz
-QyNDQyMywtMTA5OTcwNzMxNCwtMjkzNzM3NDQ2LDEyMzQyNDIz
-NSw3NDI0NTI1NDEsNjQzMDg4ODk2LDE0NTEwNjU0MjYsMjExMz
-kzMjUzNywtOTcxMzY4ODY0LC05MjY5NDE2ODcsLTE4ODI4OTYz
-MTMsMTk0ODA5NzU1MSw1NDE5MTY5MDQsMTEzNDI4NzMxNywxMT
-YyMDA0MTYzLC01NDY5Njg3NjMsLTE3NDc2NzUzOTIsOTgwNDQ2
-MzkwXX0=
+eyJoaXN0b3J5IjpbOTY2NjU4Mzc0LC0zMjU2ODAyOTAsODkzND
+I0NDIzLC0xMDk5NzA3MzE0LC0yOTM3Mzc0NDYsMTIzNDI0MjM1
+LDc0MjQ1MjU0MSw2NDMwODg4OTYsMTQ1MTA2NTQyNiwyMTEzOT
+MyNTM3LC05NzEzNjg4NjQsLTkyNjk0MTY4NywtMTg4Mjg5NjMx
+MywxOTQ4MDk3NTUxLDU0MTkxNjkwNCwxMTM0Mjg3MzE3LDExNj
+IwMDQxNjMsLTU0Njk2ODc2MywtMTc0NzY3NTM5Miw5ODA0NDYz
+OTBdfQ==
 -->
