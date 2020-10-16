@@ -95,15 +95,15 @@ Many of the monks who knew the words of the teachings were not able to comprehen
 
 By the time the discourses were written down in Pali in Sri Lanka there were eighteen or twenty schools that had interpreted the teachings in different ways – but importantly the lessons derived are the same. The variations exist, but the morals are the same. P15
 
-The third school, Mahayana Buddhism, began in the third century B.C.E when some monks decided to divorce themselves from the rest of society. People from their lay Buddhist communities (those who identified as Buddhist but were not monks) helped to support them. And, although the Mahayana lived life away from society the they had the effect of inspiring the laypeople (and themselves) to develop reviving the contact of Buddhism in regular life. P16
+The third school, – Mahayana – of Buddhism, began in the third century B.C.E when some monks decided to divorce themselves from the rest of society. People from their lay Buddhist communities (those who identified as Buddhist but were not monks)communities helped to support them. And, although the Mahayanay lived a life away from society the they had the effect of inspiring the laypeople (and themselves) to develop reviving the contact of Buddhism in regular life. P16
 
- 
+   
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTc1MDExNDI4Miw4OTM0MjQ0MjMsLTEwOT
-k3MDczMTQsLTI5MzczNzQ0NiwxMjM0MjQyMzUsNzQyNDUyNTQx
-LDY0MzA4ODg5NiwxNDUxMDY1NDI2LDIxMTM5MzI1MzcsLTk3MT
-M2ODg2NCwtOTI2OTQxNjg3LC0xODgyODk2MzEzLDE5NDgwOTc1
-NTEsNTQxOTE2OTA0LDExMzQyODczMTcsMTE2MjAwNDE2MywtNT
-Q2OTY4NzYzLC0xNzQ3Njc1MzkyLDk4MDQ0NjM5MCwxMzgyMzI1
-OTY2XX0=
+eyJoaXN0b3J5IjpbLTMyNTY4MDI5MCwtNzUwMTE0MjgyLDg5Mz
+QyNDQyMywtMTA5OTcwNzMxNCwtMjkzNzM3NDQ2LDEyMzQyNDIz
+NSw3NDI0NTI1NDEsNjQzMDg4ODk2LDE0NTEwNjU0MjYsMjExMz
+kzMjUzNywtOTcxMzY4ODY0LC05MjY5NDE2ODcsLTE4ODI4OTYz
+MTMsMTk0ODA5NzU1MSw1NDE5MTY5MDQsMTEzNDI4NzMxNywxMT
+YyMDA0MTYzLC01NDY5Njg3NjMsLTE3NDc2NzUzOTIsOTgwNDQ2
+MzkwXX0=
 -->
