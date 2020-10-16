@@ -105,10 +105,11 @@ The third school, – Mahayana – of Buddhism, began in the third century B.C.E
 Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 17). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
 ```
 
-   
+O   
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTY2NjU4Mzc0LDg5MzQyNDQyMywtMTA5OT
-cwNzMxNCw3NDI0NTI1NDEsNjQzMDg4ODk2LDE0NTEwNjU0MjYs
-LTkyNjk0MTY4NywxOTQ4MDk3NTUxLDU0MTkxNjkwNCwxMTM0Mj
-g3MzE3LDExNjIwMDQxNjMsLTU0Njk2ODc2M119
+eyJoaXN0b3J5IjpbLTgwODk3NzE4Nyw5NjY2NTgzNzQsODkzND
+I0NDIzLC0xMDk5NzA3MzE0LDc0MjQ1MjU0MSw2NDMwODg4OTYs
+MTQ1MTA2NTQyNiwtOTI2OTQxNjg3LDE5NDgwOTc1NTEsNTQxOT
+E2OTA0LDExMzQyODczMTcsMTE2MjAwNDE2MywtNTQ2OTY4NzYz
+XX0=
 -->
