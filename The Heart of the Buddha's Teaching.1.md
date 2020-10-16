@@ -107,9 +107,13 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 17). Potter/Ten Speed/H
 
 One of the most important lessons of Buddhism is in fact not to be overly focused on the words. In fact, it was the Buddha who said to his disciples, "For forty five years, I have not uttered a single word." His meaning was that the words themselves should not present an iron clad theory for living, only a lens for understanding. A way to unwrap the complexities and noise around us. P18
 
-    
+```
+Buddhist teachings are meant to awaken our true self, not merely to add to our storehouse of knowledge.
+
+Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 18). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
+```    
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTEwNjQxNjMxNyw5NjY2NTgzNzQsODkzND
+eyJoaXN0b3J5IjpbMTY0ODg4NzU2NCw5NjY2NTgzNzQsODkzND
 I0NDIzLC0xMDk5NzA3MzE0LDc0MjQ1MjU0MSw2NDMwODg4OTYs
 MTQ1MTA2NTQyNiwtOTI2OTQxNjg3LDE5NDgwOTc1NTEsNTQxOT
 E2OTA0LDExMzQyODczMTcsMTE2MjAwNDE2MywtNTQ2OTY4NzYz
