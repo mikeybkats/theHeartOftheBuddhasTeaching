@@ -1,6 +1,6 @@
 # Book Report: The Heart of the Buddha's Teaching (chapters 1 - 4)
 
-The Heart of the Buddha's Teaching is a book by Thich Nhat Han.  As the title suggests, Nhat Han writes about getting to the center of Buddhist teachings and philosophies. Buddhist Philosophy is not rooted in following a specific doctrine or a specific set of rules or commandments as is done in western religions like Christianity. The Heart of the Buddha's Teaching is truly a mindset that can be applied to how living life is approached.
+The Heart of the Buddha's Teaching is a book by Thich Nhat Han.  As the title suggests, Nhat Han writes about getting to the center of Buddhist teachings and philosophies. Buddhist Philosophy is not rooted in following a specific doctrine or a specific set of rules or commandments as is done in western religions like Christianity. The Heart of the Buddha's Teaching is a mindset that can be applied to how life is approached.
 
 Buddhism is structured around Four Noble truths. This is how these corner stones are referred to – as Noble Truths – by practitioners of the Buddhist religion. They are noble because they lead to a path that will help its followers achieve a fuller understanding of the world. Before the path is explained, let's dive into what these Noble Truths are all about. 
 
@@ -24,9 +24,9 @@ The three streams of Buddhism compliment each other. And, each school looks into
 
 One of the most important lessons of Buddhism is in fact not to be overly focused on the words. In fact, it was the Buddha who said to his disciples, "For forty five years, I have not uttered a single word." His meaning was that the words themselves should not present an iron clad theory for living, only a lens for understanding.  P18 
 
-To me, this is the heart of Buddhist philosophy. A way to unwrap the complexities and noise around us.
+To me, this is the heart of Buddhist philosophy: A way, a method, to unwrap the complexities and noise around us.
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTA5MTkzOTMzM119
+eyJoaXN0b3J5IjpbMTU2NjgxMjc0Ml19
 -->
