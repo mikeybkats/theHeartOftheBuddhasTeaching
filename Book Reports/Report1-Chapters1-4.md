@@ -2,9 +2,9 @@
 
 The Heart of the Buddha's Teaching is a book by Thich Nhat Han.  As the title suggests, Nhat Han writes about getting to the center of Buddhist teachings and philosophies. Buddhist Philosophy is not rooted in following a specific doctrine or a specific set of rules or commandments as is done in western religions like Christianity. The Heart of the Buddha's Teaching is truly a mindset that can be applied to how living life is approached.
 
-Buddhism is structured around Four Noble truths. This is how these corner stones are referred to – as Noble Truths – by practitioners of the Buddhist religion. They are noble because they lead to a path that will help its followers achieve a fuller understanding of the world. This path is known as the Noble Eightfold Path, and it manifests itself as a morally correct way to approach life. The path has eight templates for behavior – Right View, Thinking, 
+Buddhism is structured around Four Noble truths. This is how these corner stones are referred to – as Noble Truths – by practitioners of the Buddhist religion. They are noble because they lead to a path that will help its followers achieve a fuller understanding of the world. This path is known as the Noble Eightfold Path, and it manifests itself as a morally correct way to approach life. The path has eight philosophies for conduct of behavior – Right View, Right Thinking, Right speech, Right Action, Right Livelihood, Right Diligence, Right Mindfulness and Right Concentration.
 
-At the heart of these truths is suffering. Suffering grounds the noble truths and 
+At the heart of these Noble truths is suffering. Suffering grounds the noble truths and 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIyOTQyMzU0MV19
+eyJoaXN0b3J5IjpbOTQ3MzE5MTQxXX0=
 -->
