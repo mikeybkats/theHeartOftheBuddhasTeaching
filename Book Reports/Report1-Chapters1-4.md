@@ -22,8 +22,11 @@ Since the original Buddha's death. There have been three schools of Buddhism:
 
 The three streams of Buddhism compliment each other. And, each school looks into the old teachings and explores some of the forgotten or misunderstood lessons of the past. Buddha made of point of saying that his sutras were not direct insights in of themselves, but lessons to extract meaning from.
 
+One of the most important lessons of Buddhism is in fact not to be overly focused on the words. In fact, it was the Buddha who said to his disciples, "For forty five years, I have not uttered a single word." His meaning was that the words themselves should not present an iron clad theory for living, only a lens for understanding.  P18 
+
+To me, this is the heart of Buddhist philosophy. A way to unwrap the complexities and noise around us.
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjk2Mjg4ODFdfQ==
+eyJoaXN0b3J5IjpbMTA5MTkzOTMzM119
 -->
