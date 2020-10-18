@@ -14,8 +14,16 @@ In Buddhism this path is known as the Noble Eightfold Path, and it manifests its
 
 Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 12). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. "
 
+Since the original Buddha's death. There have been three schools of Buddhism:
+
+	- Source Buddhism: the teachings from Buddha during his lifetime
+	- Many Schools Buddhism: different schools that have divided on how to interpret and extend the teachings of Buddha
+	- Mahayana Buddhism: monks who divorced themselves from society to practice Buddhism.
+
+The three streams of Buddhism compliment each other. And, each school looks into the old teachings and explores some of the forgotten or misunderstood lessons of the past. Buddha made of point of saying that his sutras were not direct insights in of themselves, but lessons to extract meaning from.
+
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTM2MzUwMzE2N119
+eyJoaXN0b3J5IjpbMjk2Mjg4ODFdfQ==
 -->
