@@ -10,14 +10,12 @@ The the second Noble Truth is understanding suffering. After a person is made to
 
 In Buddhism this path is known as the Noble Eightfold Path, and it manifests itself as a morally correct way to approach life. The path has eight philosophies for conduct of behavior – Right View, Right Thinking, Right speech, Right Action, Right Livelihood, Right Diligence, Right Mindfulness and Right Concentration. There are ways to do all of these things "wrong" and ways to do them "right." As Thich Nhat Han points out, much of this is about having an open mind. And, to quote him:
 
-"
-Usually when we hear or read something new, we just compare it to our own ideas. If it is the same, we accept it and say that it is correct. If it is not, we say it is incorrect. In either case, we learn nothing. If we read or listen with an open mind and an open heart, the rain of the Dharma will penetrate the soil of our consciousness.
+"Usually when we hear or read something new, we just compare it to our own ideas. If it is the same, we accept it and say that it is correct. If it is not, we say it is incorrect. In either case, we learn nothing. If we read or listen with an open mind and an open heart, the rain of the Dharma will penetrate the soil of our consciousness.
 
-Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 12). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
-"
- 
+Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 12). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. "
+
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTM1OTc3NjcyMV19
+eyJoaXN0b3J5IjpbLTM2MzUwMzE2N119
 -->
