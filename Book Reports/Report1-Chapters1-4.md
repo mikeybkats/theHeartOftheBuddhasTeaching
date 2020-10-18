@@ -6,11 +6,11 @@ Buddhism is structured around Four Noble truths. This is how these corner stones
 
 The noble truths are at Buddhism's core and they help people process the hardships of their realities. This is why the first Noble truth is suffering. Suffering grounds all the noble truths.
 
-The the second Noble Truth is understanding suffering. After a person is made to suffer, to progress beyond that suffering the sufferer must look closely to discover why they are suffering at all in the first place. After the root cause is realized it can be stopped. Ending the suffering is the third Noble Truth. 
+The the second Noble Truth is understanding suffering. After a person is made to suffer, to progress beyond that suffering the sufferer must look closely to discover why they are suffering at all in the first place. After the root cause is realized it can be stopped. Ending the suffering is the third Noble Truth. One doctrine taught by many wise mothers and fathers is that the best medicine for not getting sick is to not get sick in the first place. This is the last Noble Truth: follow a set of rules to help you avoid the things that we know make us suffer. This
 
 This path is known as the Noble Eightfold Path, and it manifests itself as a morally correct way to approach life. The path has eight philosophies for conduct of behavior – Right View, Right Thinking, Right speech, Right Action, Right Livelihood, Right Diligence, Right Mindfulness and Right Concentration.
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyMDgzNTQ3MzZdfQ==
+eyJoaXN0b3J5IjpbLTE1ODg5OTg0NzldfQ==
 -->
