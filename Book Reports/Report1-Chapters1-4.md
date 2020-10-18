@@ -2,9 +2,7 @@
 
 The Heart of the Buddha's Teaching is a book by Thich Nhat Han.  As the title suggests, Nhat Han writes about getting to the center of Buddhist teachings and philosophies. Buddhist Philosophy is not rooted in following a specific doctrine or a specific set of rules or commandments as is done in western religions like Christianity. The Heart of the Buddha's Teaching is a mindset that can be applied to how life is approached.
 
-Buddhism is structured around Four Noble truths. This is how these corner stones are referred to – as Noble Truths – by practitioners of the Buddhist religion. They are noble because they lead to a path that will help its followers achieve a fuller understanding of the world. Before the path is explained, let's dive into what these Noble Truths are all about. 
-
-The noble truths are at Buddhism's core and they help people process the hardships of their realities. This is why the first Noble truth is suffering. Suffering grounds all the noble truths.
+Buddhism is structured around Four Noble truths. This is how these foundational points are referred to by practitioners of the Buddhist religion – as Noble Truths. They are noble because they lead to a path that will help its followers achieve a fuller understanding of the world. Before the path is explained, let's dive into what these Noble Truths are all about. At Buddhism's core and they help people process the hardships of their realities. This is why the first Noble truth is suffering. Suffering grounds all the noble truths.
 
 The the second Noble Truth is understanding suffering. After a person is made to suffer, to progress beyond that suffering the sufferer must look closely to discover why they are suffering at all in the first place. After the root cause is realized it can be stopped. Ending the suffering is the third Noble Truth. One doctrine taught by many wise mothers and fathers is that the best medicine for not getting sick is to not get sick in the first place. This is the last Noble Truth: follow a set of rules to help you avoid the things that we know make us suffer. This is the path.
 
@@ -28,5 +26,5 @@ To me, this is the heart of Buddhist philosophy: A way, a method, to unwrap the 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTU2NjgxMjc0Ml19
+eyJoaXN0b3J5IjpbLTE2NjQ5NTU5NDBdfQ==
 -->
