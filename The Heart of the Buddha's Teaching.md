@@ -55,7 +55,7 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 11). Potter/Ten Speed/H
 
 #### Truth 4: The path that leads to refraining from the things that we do that make us suffer
 
-*marga* - the Noble ightfold ath. The path of eight practices: 
+*marga* - the Noble eightfold path. The path of eight practices: 
 
 	1.Right view
 	2.Right thinking
@@ -113,11 +113,11 @@ Buddhist teachings are meant to awaken our true self, not merely to add to our s
 Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 18). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
 ```    
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTY0ODg4NzU2NCw5NjY2NTgzNzQsLTMyNT
-Y4MDI5MCw4OTM0MjQ0MjMsLTEwOTk3MDczMTQsLTI5MzczNzQ0
-NiwxMjM0MjQyMzUsNzQyNDUyNTQxLDY0MzA4ODg5NiwxNDUxMD
-Y1NDI2LDIxMTM5MzI1MzcsLTk3MTM2ODg2NCwtOTI2OTQxNjg3
-LC0xODgyODk2MzEzLDE5NDgwOTc1NTEsNTQxOTE2OTA0LDExMz
-QyODczMTcsMTE2MjAwNDE2MywtNTQ2OTY4NzYzLC0xNzQ3Njc1
-MzkyXX0=
+eyJoaXN0b3J5IjpbLTE1OTg3Mjg4MDksMTY0ODg4NzU2NCw5Nj
+Y2NTgzNzQsLTMyNTY4MDI5MCw4OTM0MjQ0MjMsLTEwOTk3MDcz
+MTQsLTI5MzczNzQ0NiwxMjM0MjQyMzUsNzQyNDUyNTQxLDY0Mz
+A4ODg5NiwxNDUxMDY1NDI2LDIxMTM5MzI1MzcsLTk3MTM2ODg2
+NCwtOTI2OTQxNjg3LC0xODgyODk2MzEzLDE5NDgwOTc1NTEsNT
+QxOTE2OTA0LDExMzQyODczMTcsMTE2MjAwNDE2MywtNTQ2OTY4
+NzYzXX0=
 -->
