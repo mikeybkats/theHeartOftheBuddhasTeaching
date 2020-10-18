@@ -87,7 +87,7 @@ Since the original Buddha's death. There have been three schools of Buddhism:
 
 	- Source Buddhism: the teachings from Buddha during his lifetime
 	- Many Schools Buddhism: different schools that have divided on how to interpret and extend the teachings of Buddha
-	- Mahayana Buddhism:
+	- Mahayana Buddhism: monks who divorced themselves from society to practice Buddhism.
 
 Oddly, it was four hundred years before any of the Buddha's teachings were even thought to be written down. Before then his teachings were only passed orally. When finally the monks of Sri Lanka who wear the copper colored robes started to think about writing Buddha's discourses on palm leaves it took them another one hundred years to begin. And, during this time there was only one monk who had memorized all the discourses, and he was known to be very arrogant (not the best vehicle to transmit the teachings of the Great Buddha). P12-13
 
@@ -97,7 +97,7 @@ By the time the discourses were written down in Pali in Sri Lanka there were eig
 
 The third school, – Mahayana – of Buddhism, began in the third century B.C.E when some monks decided to divorce themselves from the rest of society. People from their lay Buddhist communities (those who identified as Buddhist but were not monks)communities helped to support them. And, although the Mahayanay lived a life away from society the they had the effect of inspiring the laypeople (and themselves) to develop reviving the contact of Buddhism in regular life. P16
 
-  The three streams of Buddhism compliment each other. And, each school looks into the old teachings and explores some of the forgotten or misunderstood lessons of the past. Buddha made of point of saying that his sutras were not direct insights in of themselves, but lessons to extract meaning from. P17
+ The three streams of Buddhism compliment each other. And, each school looks into the old teachings and explores some of the forgotten or misunderstood lessons of the past. Buddha made of point of saying that his sutras were not direct insights in of themselves, but lessons to extract meaning from. P17
 
 ```
 “My teaching is like a finger pointing to the moon. Do not mistake the finger for the moon.”
@@ -113,11 +113,11 @@ Buddhist teachings are meant to awaken our true self, not merely to add to our s
 Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 18). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
 ```    
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE1OTg3Mjg4MDksMTY0ODg4NzU2NCw5Nj
-Y2NTgzNzQsLTMyNTY4MDI5MCw4OTM0MjQ0MjMsLTEwOTk3MDcz
-MTQsLTI5MzczNzQ0NiwxMjM0MjQyMzUsNzQyNDUyNTQxLDY0Mz
-A4ODg5NiwxNDUxMDY1NDI2LDIxMTM5MzI1MzcsLTk3MTM2ODg2
-NCwtOTI2OTQxNjg3LC0xODgyODk2MzEzLDE5NDgwOTc1NTEsNT
-QxOTE2OTA0LDExMzQyODczMTcsMTE2MjAwNDE2MywtNTQ2OTY4
-NzYzXX0=
+eyJoaXN0b3J5IjpbLTE5NjM4MTMyNzcsLTE1OTg3Mjg4MDksMT
+Y0ODg4NzU2NCw5NjY2NTgzNzQsLTMyNTY4MDI5MCw4OTM0MjQ0
+MjMsLTEwOTk3MDczMTQsLTI5MzczNzQ0NiwxMjM0MjQyMzUsNz
+QyNDUyNTQxLDY0MzA4ODg5NiwxNDUxMDY1NDI2LDIxMTM5MzI1
+MzcsLTk3MTM2ODg2NCwtOTI2OTQxNjg3LC0xODgyODk2MzEzLD
+E5NDgwOTc1NTEsNTQxOTE2OTA0LDExMzQyODczMTcsMTE2MjAw
+NDE2M119
 -->
