@@ -8,9 +8,16 @@ The noble truths are at Buddhism's core and they help people process the hardshi
 
 The the second Noble Truth is understanding suffering. After a person is made to suffer, to progress beyond that suffering the sufferer must look closely to discover why they are suffering at all in the first place. After the root cause is realized it can be stopped. Ending the suffering is the third Noble Truth. One doctrine taught by many wise mothers and fathers is that the best medicine for not getting sick is to not get sick in the first place. This is the last Noble Truth: follow a set of rules to help you avoid the things that we know make us suffer. This is the path.
 
-In Buddhism this path is known as the Noble Eightfold Path, and it manifests itself as a morally correct way to approach life. The path has eight philosophies for conduct of behavior – Right View, Right Thinking, Right speech, Right Action, Right Livelihood, Right Diligence, Right Mindfulness and Right Concentration. There are ways to do all of these things "wrong" and ways to do them "right." Following 
+In Buddhism this path is known as the Noble Eightfold Path, and it manifests itself as a morally correct way to approach life. The path has eight philosophies for conduct of behavior – Right View, Right Thinking, Right speech, Right Action, Right Livelihood, Right Diligence, Right Mindfulness and Right Concentration. There are ways to do all of these things "wrong" and ways to do them "right." As Thich Nhat Han points out, much of this is about having an open mind. And, to quote him:
+
+"
+Usually when we hear or read something new, we just compare it to our own ideas. If it is the same, we accept it and say that it is correct. If it is not, we say it is incorrect. In either case, we learn nothing. If we read or listen with an open mind and an open heart, the rain of the Dharma will penetrate the soil of our consciousness.
+
+Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 12). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
+"
+ 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbODY5Nzg2OTQ1XX0=
+eyJoaXN0b3J5IjpbLTM1OTc3NjcyMV19
 -->
