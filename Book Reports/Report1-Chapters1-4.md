@@ -6,7 +6,7 @@ Buddhism is structured around Four Noble truths. This is how these foundational 
 
 At Buddhism's core is the belief that we all have the power to relieve ourselves of many hardships, and many problems of our own realities. Inherent in this thinking is that we often cause our own suffering. This is why the first Noble truth is suffering. Suffering grounds all the noble truths. The second Noble Truth is understanding our suffering. After a person is made to suffer, to progress beyond that suffering the sufferer must look closely to discover why they are suffering at all in the first place. After the root cause is realized it can be stopped. Ending the suffering is the third Noble Truth. One doctrine taught by many wise mothers and fathers is that the best medicine for not getting sick is to not get sick in the first place. This is the last Noble Truth: follow a set of rules to help you avoid the things that we know make us suffer. This is the path.
 
-In Buddhism this path is known as the Noble Eightfold Path, and it manifests itself as a morally correct way to approach life. The path has eight philosophies for conduct of behavior – Right View, Right Thinking, Right speech, Right Action, Right Livelihood, Right Diligence, Right Mindfulness and Right Concentration. There are ways to do all of these things "wrong" and ways to do them "right." As Thich Nhat Han points out, much of this is about having an open mind. And, to quote him:
+In Buddhism this path is known as the Noble Eightfold Path, and it manifests itself as a morally correct way to approach life. The path has eight philosophies for conduct of behavior – Right View, Right Thinking, Right speech, Right Action, Right Livelihood, Right Diligence, Right Mindfulness and Right Concentration. There are ways to do all of these things "wrong" and ways to do them "right." Doing them right will help followers stifle away their suffering. As Thich Nhat Han points out, much of this is about having an open mind. And, to quote him:
 
 "Usually when we hear or read something new, we just compare it to our own ideas. If it is the same, we accept it and say that it is correct. If it is not, we say it is incorrect. In either case, we learn nothing. If we read or listen with an open mind and an open heart, the rain of the Dharma will penetrate the soil of our consciousness.
 
@@ -26,5 +26,5 @@ To me, this is the heart of Buddhist philosophy: A way, a method, to unwrap the 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIwNDU5NTE1OTBdfQ==
+eyJoaXN0b3J5IjpbLTEwNDgzMjA4MzNdfQ==
 -->
