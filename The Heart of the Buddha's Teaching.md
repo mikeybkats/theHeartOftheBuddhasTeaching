@@ -121,13 +121,13 @@ This wrote repetition is practice without intelligence. P19
 
 Repeating phrases of the sutra can be helpful but only so far, and it may not lead you to resolving the conflict and suffering inside of you. P19
 
-Suffering is often treated as a lesson in of itself. Sometimes it is placed along side the concepts of *impermanence* and *non-self*. This is not correct. Suffering is a cause or result – usually of attachment to something else. Impermanence and non-self are qualities that 
+Suffering is often treated as a lesson in of itself. Sometimes it is placed along side the concepts of *impermanence* and *non-self*. This is not correct. Suffering is a cause or result – usually of attachment to something else. Impermanence and non-self are qualities that help us not get caught up in signs and signifiers.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTg4MzU0NzIwOSwtMTk2MzgxMzI3NywtMT
-U5ODcyODgwOSwxNjQ4ODg3NTY0LDk2NjY1ODM3NCwtMzI1Njgw
-MjkwLDg5MzQyNDQyMywtMTA5OTcwNzMxNCwtMjkzNzM3NDQ2LD
-EyMzQyNDIzNSw3NDI0NTI1NDEsNjQzMDg4ODk2LDE0NTEwNjU0
-MjYsMjExMzkzMjUzNywtOTcxMzY4ODY0LC05MjY5NDE2ODcsLT
-E4ODI4OTYzMTMsMTk0ODA5NzU1MSw1NDE5MTY5MDQsMTEzNDI4
-NzMxN119
+eyJoaXN0b3J5IjpbLTEwMDM1NjIyNjcsLTE5NjM4MTMyNzcsLT
+E1OTg3Mjg4MDksMTY0ODg4NzU2NCw5NjY2NTgzNzQsLTMyNTY4
+MDI5MCw4OTM0MjQ0MjMsLTEwOTk3MDczMTQsLTI5MzczNzQ0Ni
+wxMjM0MjQyMzUsNzQyNDUyNTQxLDY0MzA4ODg5NiwxNDUxMDY1
+NDI2LDIxMTM5MzI1MzcsLTk3MTM2ODg2NCwtOTI2OTQxNjg3LC
+0xODgyODk2MzEzLDE5NDgwOTc1NTEsNTQxOTE2OTA0LDExMzQy
+ODczMTddfQ==
 -->
