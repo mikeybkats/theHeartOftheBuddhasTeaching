@@ -111,13 +111,15 @@ One of the most important lessons of Buddhism is in fact not to be overly focuse
 Buddhist teachings are meant to awaken our true self, not merely to add to our storehouse of knowledge.
 
 Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 18). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
-```    
+```
+
+### Chapter 5: 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5NjM4MTMyNzcsLTE1OTg3Mjg4MDksMT
-Y0ODg4NzU2NCw5NjY2NTgzNzQsLTMyNTY4MDI5MCw4OTM0MjQ0
-MjMsLTEwOTk3MDczMTQsLTI5MzczNzQ0NiwxMjM0MjQyMzUsNz
-QyNDUyNTQxLDY0MzA4ODg5NiwxNDUxMDY1NDI2LDIxMTM5MzI1
-MzcsLTk3MTM2ODg2NCwtOTI2OTQxNjg3LC0xODgyODk2MzEzLD
-E5NDgwOTc1NTEsNTQxOTE2OTA0LDExMzQyODczMTcsMTE2MjAw
-NDE2M119
+eyJoaXN0b3J5IjpbLTY5NTkyMzc0LC0xOTYzODEzMjc3LC0xNT
+k4NzI4ODA5LDE2NDg4ODc1NjQsOTY2NjU4Mzc0LC0zMjU2ODAy
+OTAsODkzNDI0NDIzLC0xMDk5NzA3MzE0LC0yOTM3Mzc0NDYsMT
+IzNDI0MjM1LDc0MjQ1MjU0MSw2NDMwODg4OTYsMTQ1MTA2NTQy
+NiwyMTEzOTMyNTM3LC05NzEzNjg4NjQsLTkyNjk0MTY4NywtMT
+g4Mjg5NjMxMywxOTQ4MDk3NTUxLDU0MTkxNjkwNCwxMTM0Mjg3
+MzE3XX0=
 -->
