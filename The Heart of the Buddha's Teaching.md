@@ -113,13 +113,17 @@ Buddhist teachings are meant to awaken our true self, not merely to add to our s
 Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 18). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
 ```
 
-### Chapter 5: 
+### Chapter 5: Is everything suffering?
+
+It's commonly heard that people invoke the name of Buddha mechanically believing that this in some way offers some kind of insight. P19 
+
+This wrote repetition  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTY5NTkyMzc0LC0xOTYzODEzMjc3LC0xNT
-k4NzI4ODA5LDE2NDg4ODc1NjQsOTY2NjU4Mzc0LC0zMjU2ODAy
-OTAsODkzNDI0NDIzLC0xMDk5NzA3MzE0LC0yOTM3Mzc0NDYsMT
-IzNDI0MjM1LDc0MjQ1MjU0MSw2NDMwODg4OTYsMTQ1MTA2NTQy
-NiwyMTEzOTMyNTM3LC05NzEzNjg4NjQsLTkyNjk0MTY4NywtMT
-g4Mjg5NjMxMywxOTQ4MDk3NTUxLDU0MTkxNjkwNCwxMTM0Mjg3
-MzE3XX0=
+eyJoaXN0b3J5IjpbLTExNDIzNjkxNDcsLTE5NjM4MTMyNzcsLT
+E1OTg3Mjg4MDksMTY0ODg4NzU2NCw5NjY2NTgzNzQsLTMyNTY4
+MDI5MCw4OTM0MjQ0MjMsLTEwOTk3MDczMTQsLTI5MzczNzQ0Ni
+wxMjM0MjQyMzUsNzQyNDUyNTQxLDY0MzA4ODg5NiwxNDUxMDY1
+NDI2LDIxMTM5MzI1MzcsLTk3MTM2ODg2NCwtOTI2OTQxNjg3LC
+0xODgyODk2MzEzLDE5NDgwOTc1NTEsNTQxOTE2OTA0LDExMzQy
+ODczMTddfQ==
 -->
