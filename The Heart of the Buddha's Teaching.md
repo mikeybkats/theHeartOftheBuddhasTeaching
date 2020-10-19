@@ -117,13 +117,17 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 18). Potter/Ten Speed/H
 
 It's commonly heard that people invoke the name of Buddha mechanically believing that this in some way offers some kind of insight. P19 
 
-This wrote repetition  
+This wrote repetition is practice without intelligence. P19 
+
+Repeating phrases of the sutra can be helpful but only so far, and it may not lead you to resolving the conflict and suffering inside of you. P19
+
+ 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTExNDIzNjkxNDcsLTE5NjM4MTMyNzcsLT
-E1OTg3Mjg4MDksMTY0ODg4NzU2NCw5NjY2NTgzNzQsLTMyNTY4
-MDI5MCw4OTM0MjQ0MjMsLTEwOTk3MDczMTQsLTI5MzczNzQ0Ni
-wxMjM0MjQyMzUsNzQyNDUyNTQxLDY0MzA4ODg5NiwxNDUxMDY1
-NDI2LDIxMTM5MzI1MzcsLTk3MTM2ODg2NCwtOTI2OTQxNjg3LC
-0xODgyODk2MzEzLDE5NDgwOTc1NTEsNTQxOTE2OTA0LDExMzQy
-ODczMTddfQ==
+eyJoaXN0b3J5IjpbMzMyMjMzMDY0LC0xOTYzODEzMjc3LC0xNT
+k4NzI4ODA5LDE2NDg4ODc1NjQsOTY2NjU4Mzc0LC0zMjU2ODAy
+OTAsODkzNDI0NDIzLC0xMDk5NzA3MzE0LC0yOTM3Mzc0NDYsMT
+IzNDI0MjM1LDc0MjQ1MjU0MSw2NDMwODg4OTYsMTQ1MTA2NTQy
+NiwyMTEzOTMyNTM3LC05NzEzNjg4NjQsLTkyNjk0MTY4NywtMT
+g4Mjg5NjMxMywxOTQ4MDk3NTUxLDU0MTkxNjkwNCwxMTM0Mjg3
+MzE3XX0=
 -->
