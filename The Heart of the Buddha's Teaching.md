@@ -119,15 +119,17 @@ It's commonly heard that people invoke the name of Buddha mechanically believing
 
 This wrote repetition is practice without intelligence. P19 
 
-Repeating phrases of the sutra can be helpful but only so far, and it may not lead you to resolving the conflict and suffering inside of you. P19
+Repeating phrases of the sutra can be helpful but only so far, and it may – it will likely – **not lead** to resolving the conflict and suffering inside of you. P19
 
-Suffering is often treated as a lesson in of itself. Sometimes it is placed along side the concepts of *impermanence* and *non-self*. This is not correct. Suffering is a cause or result – usually of attachment to something else. Impermanence and non-self are qualities that help us not get caught up in signs and signifiers.
+Suffering has been in the past treated as a lesson in of itself by some Buddhist pr. Sometimes it is placed along side the concepts of *impermanence* and *non-self*. This is not correct. Suffering is a cause or result – usually of attachment to something else. Impermanence and non-self are qualities that help us not get caught up in signs and signifiers.
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEwMDM1NjIyNjcsLTE5NjM4MTMyNzcsLT
-E1OTg3Mjg4MDksMTY0ODg4NzU2NCw5NjY2NTgzNzQsLTMyNTY4
-MDI5MCw4OTM0MjQ0MjMsLTEwOTk3MDczMTQsLTI5MzczNzQ0Ni
-wxMjM0MjQyMzUsNzQyNDUyNTQxLDY0MzA4ODg5NiwxNDUxMDY1
-NDI2LDIxMTM5MzI1MzcsLTk3MTM2ODg2NCwtOTI2OTQxNjg3LC
-0xODgyODk2MzEzLDE5NDgwOTc1NTEsNTQxOTE2OTA0LDExMzQy
-ODczMTddfQ==
+eyJoaXN0b3J5IjpbNTgyNDM5NDAzLC0xMDAzNTYyMjY3LC0xOT
+YzODEzMjc3LC0xNTk4NzI4ODA5LDE2NDg4ODc1NjQsOTY2NjU4
+Mzc0LC0zMjU2ODAyOTAsODkzNDI0NDIzLC0xMDk5NzA3MzE0LC
+0yOTM3Mzc0NDYsMTIzNDI0MjM1LDc0MjQ1MjU0MSw2NDMwODg4
+OTYsMTQ1MTA2NTQyNiwyMTEzOTMyNTM3LC05NzEzNjg4NjQsLT
+kyNjk0MTY4NywtMTg4Mjg5NjMxMywxOTQ4MDk3NTUxLDU0MTkx
+NjkwNF19
 -->
