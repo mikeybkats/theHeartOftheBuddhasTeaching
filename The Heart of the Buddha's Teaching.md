@@ -148,13 +148,17 @@ There is a story in Zen circles about a man and a horse. The horse is galloping 
 Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 24). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
 ```
 
-It's a cute story, of course many times we are the man and 
+It's a cute story – of course many times we are the man on the horse and our subconscious is the horse carrying us away. 
+
+The horse is "habit energy that pulls us along, and we are powerless." P24
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTgzNDc2MzExNSw5NDg1MjE4NjIsLTEwMD
-M1NjIyNjcsLTE5NjM4MTMyNzcsLTE1OTg3Mjg4MDksMTY0ODg4
-NzU2NCw5NjY2NTgzNzQsLTMyNTY4MDI5MCw4OTM0MjQ0MjMsLT
-EwOTk3MDczMTQsLTI5MzczNzQ0NiwxMjM0MjQyMzUsNzQyNDUy
-NTQxLDY0MzA4ODg5NiwxNDUxMDY1NDI2LDIxMTM5MzI1MzcsLT
-k3MTM2ODg2NCwtOTI2OTQxNjg3LC0xODgyODk2MzEzLDE5NDgw
-OTc1NTFdfQ==
+eyJoaXN0b3J5IjpbLTE3OTk5NDUyMTMsOTQ4NTIxODYyLC0xMD
+AzNTYyMjY3LC0xOTYzODEzMjc3LC0xNTk4NzI4ODA5LDE2NDg4
+ODc1NjQsOTY2NjU4Mzc0LC0zMjU2ODAyOTAsODkzNDI0NDIzLC
+0xMDk5NzA3MzE0LC0yOTM3Mzc0NDYsMTIzNDI0MjM1LDc0MjQ1
+MjU0MSw2NDMwODg4OTYsMTQ1MTA2NTQyNiwyMTEzOTMyNTM3LC
+05NzEzNjg4NjQsLTkyNjk0MTY4NywtMTg4Mjg5NjMxMywxOTQ4
+MDk3NTUxXX0=
 -->
