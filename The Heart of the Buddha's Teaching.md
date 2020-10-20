@@ -152,9 +152,9 @@ It's a cute story – of course many times we are the man on the horse and our s
 
 The horse is "habit energy that pulls us along, and we are powerless." P24
 
-The power of our habits are naturally more powerful than our strength of will. It takes practice and time to develop new habits to 
+The power of our habit energies are naturally more powerful than our strength of will. How many times have you been at the computer trying "so hard" to re-engage with work, but instead you end up reading a wikipedia article or shopping online. It takes practice and time to develop new habits to counteract these natural habit tendencies. The first step is simply to stop. This is being mindful. I
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNjIzNjMwMTYzLDk0ODUyMTg2MiwtMTAwMz
+eyJoaXN0b3J5IjpbMjA5MTI2NTE1LDk0ODUyMTg2MiwtMTAwMz
 U2MjI2NywtMTk2MzgxMzI3NywtMTU5ODcyODgwOSwxNjQ4ODg3
 NTY0LDk2NjY1ODM3NCwtMzI1NjgwMjkwLDg5MzQyNDQyMywtMT
 A5OTcwNzMxNCwtMjkzNzM3NDQ2LDEyMzQyNDIzNSw3NDI0NTI1
