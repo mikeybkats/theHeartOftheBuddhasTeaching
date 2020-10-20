@@ -166,16 +166,17 @@ This is why it's so important to stop. If you can take the step of stopping, the
 
 The second function of meditation is calming. Meditation relieves stress. There are five stages of calming the body:
 
-- Recognition
-- Acceptance
-- Embracing
-- Lo
+- Recognition - knowing the feeling is there
+- Acceptance - knowing the feeling is true
+- Embracing - holding the feeling and being okay with it
+- Looking deeply
+- Insight
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTQ0NzAwMjEyMSwtMTI4NTQ5NDc1Niw5ND
-g1MjE4NjIsLTEwMDM1NjIyNjcsLTE5NjM4MTMyNzcsLTE1OTg3
-Mjg4MDksMTY0ODg4NzU2NCw5NjY2NTgzNzQsLTMyNTY4MDI5MC
-w4OTM0MjQ0MjMsLTEwOTk3MDczMTQsLTI5MzczNzQ0NiwxMjM0
-MjQyMzUsNzQyNDUyNTQxLDY0MzA4ODg5NiwxNDUxMDY1NDI2LD
-IxMTM5MzI1MzcsLTk3MTM2ODg2NCwtOTI2OTQxNjg3LC0xODgy
-ODk2MzEzXX0=
+eyJoaXN0b3J5IjpbLTM5MDU4ODU5LC0xMjg1NDk0NzU2LDk0OD
+UyMTg2MiwtMTAwMzU2MjI2NywtMTk2MzgxMzI3NywtMTU5ODcy
+ODgwOSwxNjQ4ODg3NTY0LDk2NjY1ODM3NCwtMzI1NjgwMjkwLD
+g5MzQyNDQyMywtMTA5OTcwNzMxNCwtMjkzNzM3NDQ2LDEyMzQy
+NDIzNSw3NDI0NTI1NDEsNjQzMDg4ODk2LDE0NTEwNjU0MjYsMj
+ExMzkzMjUzNywtOTcxMzY4ODY0LC05MjY5NDE2ODcsLTE4ODI4
+OTYzMTNdfQ==
 -->
