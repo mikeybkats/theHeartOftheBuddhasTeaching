@@ -137,10 +137,12 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 23). Potter/Ten Speed/H
 
 ### Chapter 6: Stopping, Calming, Resting, Healing
 There are two parts of meditation:
-	- Looking deeply
-	-  
+	- Looking deeply – *vipashyana* 
+	- Stopping – *shamatha*
+
+Looking deeply is often overemphasized.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTkxOTQ1MTgxMSw5NDg1MjE4NjIsLTEwMD
+eyJoaXN0b3J5IjpbMTYzODI0Mjg4OCw5NDg1MjE4NjIsLTEwMD
 M1NjIyNjcsLTE5NjM4MTMyNzcsLTE1OTg3Mjg4MDksMTY0ODg4
 NzU2NCw5NjY2NTgzNzQsLTMyNTY4MDI5MCw4OTM0MjQ0MjMsLT
 EwOTk3MDczMTQsLTI5MzczNzQ0NiwxMjM0MjQyMzUsNzQyNDUy
