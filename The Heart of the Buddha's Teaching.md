@@ -152,13 +152,13 @@ It's a cute story – of course many times we are the man on the horse and our s
 
 The horse is "habit energy that pulls us along, and we are powerless." P24
 
-
+The power of our habits are naturally more powerful than our strength of will. It takes practice and time to develop new habits to 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3OTk5NDUyMTMsOTQ4NTIxODYyLC0xMD
-AzNTYyMjY3LC0xOTYzODEzMjc3LC0xNTk4NzI4ODA5LDE2NDg4
-ODc1NjQsOTY2NjU4Mzc0LC0zMjU2ODAyOTAsODkzNDI0NDIzLC
-0xMDk5NzA3MzE0LC0yOTM3Mzc0NDYsMTIzNDI0MjM1LDc0MjQ1
-MjU0MSw2NDMwODg4OTYsMTQ1MTA2NTQyNiwyMTEzOTMyNTM3LC
-05NzEzNjg4NjQsLTkyNjk0MTY4NywtMTg4Mjg5NjMxMywxOTQ4
-MDk3NTUxXX0=
+eyJoaXN0b3J5IjpbNjIzNjMwMTYzLDk0ODUyMTg2MiwtMTAwMz
+U2MjI2NywtMTk2MzgxMzI3NywtMTU5ODcyODgwOSwxNjQ4ODg3
+NTY0LDk2NjY1ODM3NCwtMzI1NjgwMjkwLDg5MzQyNDQyMywtMT
+A5OTcwNzMxNCwtMjkzNzM3NDQ2LDEyMzQyNDIzNSw3NDI0NTI1
+NDEsNjQzMDg4ODk2LDE0NTEwNjU0MjYsMjExMzkzMjUzNywtOT
+cxMzY4ODY0LC05MjY5NDE2ODcsLTE4ODI4OTYzMTMsMTk0ODA5
+NzU1MV19
 -->
