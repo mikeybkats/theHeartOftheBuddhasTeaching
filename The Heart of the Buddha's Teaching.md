@@ -162,13 +162,20 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 25). Potter/Ten Speed/H
 
 Forgetfulness is the opposite of mindfulness. I think of forgetfulness as a way of neglecting our own realities. We forget to appreciate the world around us, we forget to realize the people we love, we forget we are enjoying a cup of coffee or a cold beer with a friend. And, (painfully) to quote Thich Nhat Han, "We sit with the person we love, but we don’t know that she is there. P25" It truly sounds like a nightmare, but many times this is a true reality. If forgetfulness is anything concrete, we can say that it is a trap that ensnares and prevents its captives from realizing that they are no longer living. 
 
-This is why it's so important to stop. If you can take the step of stopping, then you can become aware. 
+This is why it's so important to stop. If you can take the step of stopping, then you can become aware. This is the first function of meditation.
+
+The second function of meditation is calming. Meditation relieves stress. There are five stages of calming the body:
+
+- Recognition
+- Acceptance
+- Embracing
+- Lo
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyODU0OTQ3NTYsOTQ4NTIxODYyLC0xMD
-AzNTYyMjY3LC0xOTYzODEzMjc3LC0xNTk4NzI4ODA5LDE2NDg4
-ODc1NjQsOTY2NjU4Mzc0LC0zMjU2ODAyOTAsODkzNDI0NDIzLC
-0xMDk5NzA3MzE0LC0yOTM3Mzc0NDYsMTIzNDI0MjM1LDc0MjQ1
-MjU0MSw2NDMwODg4OTYsMTQ1MTA2NTQyNiwyMTEzOTMyNTM3LC
-05NzEzNjg4NjQsLTkyNjk0MTY4NywtMTg4Mjg5NjMxMywxOTQ4
-MDk3NTUxXX0=
+eyJoaXN0b3J5IjpbMTQ0NzAwMjEyMSwtMTI4NTQ5NDc1Niw5ND
+g1MjE4NjIsLTEwMDM1NjIyNjcsLTE5NjM4MTMyNzcsLTE1OTg3
+Mjg4MDksMTY0ODg4NzU2NCw5NjY2NTgzNzQsLTMyNTY4MDI5MC
+w4OTM0MjQ0MjMsLTEwOTk3MDczMTQsLTI5MzczNzQ0NiwxMjM0
+MjQyMzUsNzQyNDUyNTQxLDY0MzA4ODg5NiwxNDUxMDY1NDI2LD
+IxMTM5MzI1MzcsLTk3MTM2ODg2NCwtOTI2OTQxNjg3LC0xODgy
+ODk2MzEzXX0=
 -->
