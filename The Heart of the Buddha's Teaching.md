@@ -160,9 +160,9 @@ Mindfulness is the energy that allows us to recognize our habit energy and preve
 Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 25). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
 ```
 
- Forgetfulness is the opposite of mindfulness. I think of forgetfulness as a way of neglecting our own realities. We forget to appreciate the world around us, we forget to realize the people we love, we forget to 
+ Forgetfulness is the opposite of mindfulness. I think of forgetfulness as a way of neglecting our own realities. We forget to appreciate the world around us, we forget to realize the people we love, we forget we are enjoying a cup of coffee or a cold beer with a friend. And, (painfully) to quote Thich Nhat Han, "We sit with the person we love, but we don’t know that she is there. P25"
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE4MDE2NTczMzEsOTQ4NTIxODYyLC0xMD
+eyJoaXN0b3J5IjpbLTIwODg3NDI2MjEsOTQ4NTIxODYyLC0xMD
 AzNTYyMjY3LC0xOTYzODEzMjc3LC0xNTk4NzI4ODA5LDE2NDg4
 ODc1NjQsOTY2NjU4Mzc0LC0zMjU2ODAyOTAsODkzNDI0NDIzLC
 0xMDk5NzA3MzE0LC0yOTM3Mzc0NDYsMTIzNDI0MjM1LDc0MjQ1
