@@ -172,9 +172,11 @@ The second function of meditation is calming. Meditation relieves stress. There 
 - Looking deeply - try to understand why it was caused
 - Insight - understanding the many causes the bigger picture and solutions
 
-After calming ourselves, the next purpose of meditation is rest. Rest is required for growth and healing. Meditation should not feel hard, let the body sink into it.   
+After calming ourselves, the next purpose of meditation is rest. Rest is required for growth and healing. Meditation should not feel hard, let the body sink into it and relax. If there is a struggle, let it go.
+
+   
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTQxODYxNDI1MywtMTQzNjczMTMzMiwtMT
+eyJoaXN0b3J5IjpbMTY0ODcwMjYzMywtMTQzNjczMTMzMiwtMT
 I4NTQ5NDc1Niw5NDg1MjE4NjIsLTEwMDM1NjIyNjcsLTE5NjM4
 MTMyNzcsLTE1OTg3Mjg4MDksMTY0ODg4NzU2NCw5NjY2NTgzNz
 QsLTMyNTY4MDI5MCw4OTM0MjQ0MjMsLTEwOTk3MDczMTQsLTI5
