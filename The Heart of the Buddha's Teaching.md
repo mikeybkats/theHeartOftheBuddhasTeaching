@@ -140,9 +140,17 @@ There are two parts of meditation:
 	- Looking deeply – *vipashyana* 
 	- Stopping – *shamatha*
 
-Looking deeply is often overemphasized.
+Looking deeply is often overemphasized. While stopping is often not as greatly stressed. But, the importance of stopping cannot be overemphasized, it is fundamental to meditation.
+
+```
+There is a story in Zen circles about a man and a horse. The horse is galloping quickly, and it appears that the man on the horse is going somewhere important. Another man, standing alongside the road, shouts, “Where are you going?” and the first man replies, “I don’t know! Ask the horse!”
+
+Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 24). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
+```
+
+It's a cute story, of course many times we are the man and 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTYzODI0Mjg4OCw5NDg1MjE4NjIsLTEwMD
+eyJoaXN0b3J5IjpbLTgzNDc2MzExNSw5NDg1MjE4NjIsLTEwMD
 M1NjIyNjcsLTE5NjM4MTMyNzcsLTE1OTg3Mjg4MDksMTY0ODg4
 NzU2NCw5NjY2NTgzNzQsLTMyNTY4MDI5MCw4OTM0MjQ0MjMsLT
 EwOTk3MDczMTQsLTI5MzczNzQ0NiwxMjM0MjQyMzUsNzQyNDUy
