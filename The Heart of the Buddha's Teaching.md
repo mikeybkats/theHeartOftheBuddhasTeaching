@@ -129,16 +129,19 @@ Another misunderstanding is that suffering is simply caused by craving. Buddha h
 
 One of the primary points of meditation and practice is to become aware of the causes of suffering. It is too simplistic to simply say that a negative emotion is felt because of craving. More so doing this, blocks the individual from discovering the actual reason they are feeling that way. So, saying that craving is the root cause prevents realizing the second Noble truth – realizing where suffering is truly coming from. With practice it is possible to know very quickly why a negative feeling is felt.
 
- 
+```
+To succeed in the practice, we must stop trying to prove that everything is suffering. In fact, we must stop trying to prove anything.
+
+Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 23). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. ``` 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTQ4NTIxODYyLC0xMDAzNTYyMjY3LC0xOT
-YzODEzMjc3LC0xNTk4NzI4ODA5LDE2NDg4ODc1NjQsOTY2NjU4
-Mzc0LC0zMjU2ODAyOTAsODkzNDI0NDIzLC0xMDk5NzA3MzE0LC
-0yOTM3Mzc0NDYsMTIzNDI0MjM1LDc0MjQ1MjU0MSw2NDMwODg4
-OTYsMTQ1MTA2NTQyNiwyMTEzOTMyNTM3LC05NzEzNjg4NjQsLT
-kyNjk0MTY4NywtMTg4Mjg5NjMxMywxOTQ4MDk3NTUxLDU0MTkx
-NjkwNF19
+eyJoaXN0b3J5IjpbNTI5NjI2NjE3LDk0ODUyMTg2MiwtMTAwMz
+U2MjI2NywtMTk2MzgxMzI3NywtMTU5ODcyODgwOSwxNjQ4ODg3
+NTY0LDk2NjY1ODM3NCwtMzI1NjgwMjkwLDg5MzQyNDQyMywtMT
+A5OTcwNzMxNCwtMjkzNzM3NDQ2LDEyMzQyNDIzNSw3NDI0NTI1
+NDEsNjQzMDg4ODk2LDE0NTEwNjU0MjYsMjExMzkzMjUzNywtOT
+cxMzY4ODY0LC05MjY5NDE2ODcsLTE4ODI4OTYzMTMsMTk0ODA5
+NzU1MV19
 -->
