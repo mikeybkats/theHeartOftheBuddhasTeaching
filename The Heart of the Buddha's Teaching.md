@@ -169,14 +169,14 @@ The second function of meditation is calming. Meditation relieves stress. There 
 - Recognition - knowing the feeling is there
 - Acceptance - knowing the feeling is true
 - Embracing - holding the feeling and being okay with it
-- Looking deeply
-- Insight
+- Looking deeply - try to understand why it was caused
+- Insight - understanding why
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTM5MDU4ODU5LC0xMjg1NDk0NzU2LDk0OD
-UyMTg2MiwtMTAwMzU2MjI2NywtMTk2MzgxMzI3NywtMTU5ODcy
-ODgwOSwxNjQ4ODg3NTY0LDk2NjY1ODM3NCwtMzI1NjgwMjkwLD
-g5MzQyNDQyMywtMTA5OTcwNzMxNCwtMjkzNzM3NDQ2LDEyMzQy
-NDIzNSw3NDI0NTI1NDEsNjQzMDg4ODk2LDE0NTEwNjU0MjYsMj
-ExMzkzMjUzNywtOTcxMzY4ODY0LC05MjY5NDE2ODcsLTE4ODI4
-OTYzMTNdfQ==
+eyJoaXN0b3J5IjpbLTE0Nzg5MTU0OTgsLTEyODU0OTQ3NTYsOT
+Q4NTIxODYyLC0xMDAzNTYyMjY3LC0xOTYzODEzMjc3LC0xNTk4
+NzI4ODA5LDE2NDg4ODc1NjQsOTY2NjU4Mzc0LC0zMjU2ODAyOT
+AsODkzNDI0NDIzLC0xMDk5NzA3MzE0LC0yOTM3Mzc0NDYsMTIz
+NDI0MjM1LDc0MjQ1MjU0MSw2NDMwODg4OTYsMTQ1MTA2NTQyNi
+wyMTEzOTMyNTM3LC05NzEzNjg4NjQsLTkyNjk0MTY4NywtMTg4
+Mjg5NjMxM119
 -->
