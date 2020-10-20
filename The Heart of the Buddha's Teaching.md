@@ -127,15 +127,16 @@ A theory known as the Three Kinds of Suffering has been an attempt to elevate th
 
 Another misunderstanding is that suffering is simply caused by craving. Buddha has said that suffering is caused by craving, but he also said that suffering is caused by other things too. P21 "anger, ignorance, suspicion, arrogance, and wrong views can also cause pain and suffering", P21
 
+One of the primary points of meditation and practice is to become aware of the causes of suffering. It is too simplistic to simply say that a negative emotion is felt because of craving. More so doing this, blocks the individual from discovering the actu 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE2NDQ4ODcwMjEsLTEwMDM1NjIyNjcsLT
-E5NjM4MTMyNzcsLTE1OTg3Mjg4MDksMTY0ODg4NzU2NCw5NjY2
-NTgzNzQsLTMyNTY4MDI5MCw4OTM0MjQ0MjMsLTEwOTk3MDczMT
-QsLTI5MzczNzQ0NiwxMjM0MjQyMzUsNzQyNDUyNTQxLDY0MzA4
-ODg5NiwxNDUxMDY1NDI2LDIxMTM5MzI1MzcsLTk3MTM2ODg2NC
-wtOTI2OTQxNjg3LC0xODgyODk2MzEzLDE5NDgwOTc1NTEsNTQx
-OTE2OTA0XX0=
+eyJoaXN0b3J5IjpbMTcwOTAzODA0OCwtMTAwMzU2MjI2NywtMT
+k2MzgxMzI3NywtMTU5ODcyODgwOSwxNjQ4ODg3NTY0LDk2NjY1
+ODM3NCwtMzI1NjgwMjkwLDg5MzQyNDQyMywtMTA5OTcwNzMxNC
+wtMjkzNzM3NDQ2LDEyMzQyNDIzNSw3NDI0NTI1NDEsNjQzMDg4
+ODk2LDE0NTEwNjU0MjYsMjExMzkzMjUzNywtOTcxMzY4ODY0LC
+05MjY5NDE2ODcsLTE4ODI4OTYzMTMsMTk0ODA5NzU1MSw1NDE5
+MTY5MDRdfQ==
 -->
