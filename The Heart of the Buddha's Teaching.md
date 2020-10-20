@@ -123,15 +123,19 @@ Repeating phrases of the sutra can be helpful but only so far, and it may – it
 
 Suffering has been in the past treated as a lesson in of itself by some Buddhist practitioners. 
 
-A theory known as the Three Kinds of Suffering has been an attempt to elevate the importance of suffering in the Buddhist faith. Sometimes it is placed along side the concepts of *impermanence* and *non-self*. This is not correct. Suffering is a cause or result – usually of attachment to something else. Impermanence and non-self are qualities that help us not get caught up in signs and signifiers.
+A theory known as the Three Kinds of Suffering has been an attempt to elevate the importance of suffering in the Buddhist faith. In this belief suffering is grouped with "Three Dharma Seals." This places it along side the concepts of *impermanence* and *non-self*. This is not correct. Suffering is a cause or result – usually of attachment to something else. Impermanence and non-self are qualities that help us not get caught up in signs and signifiers. P20-21
+
+A
+
+
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTk5MDE3MjU0MiwtMTAwMzU2MjI2NywtMT
-k2MzgxMzI3NywtMTU5ODcyODgwOSwxNjQ4ODg3NTY0LDk2NjY1
-ODM3NCwtMzI1NjgwMjkwLDg5MzQyNDQyMywtMTA5OTcwNzMxNC
-wtMjkzNzM3NDQ2LDEyMzQyNDIzNSw3NDI0NTI1NDEsNjQzMDg4
-ODk2LDE0NTEwNjU0MjYsMjExMzkzMjUzNywtOTcxMzY4ODY0LC
-05MjY5NDE2ODcsLTE4ODI4OTYzMTMsMTk0ODA5NzU1MSw1NDE5
-MTY5MDRdfQ==
+eyJoaXN0b3J5IjpbMzE4MTM4MTI4LC0xMDAzNTYyMjY3LC0xOT
+YzODEzMjc3LC0xNTk4NzI4ODA5LDE2NDg4ODc1NjQsOTY2NjU4
+Mzc0LC0zMjU2ODAyOTAsODkzNDI0NDIzLC0xMDk5NzA3MzE0LC
+0yOTM3Mzc0NDYsMTIzNDI0MjM1LDc0MjQ1MjU0MSw2NDMwODg4
+OTYsMTQ1MTA2NTQyNiwyMTEzOTMyNTM3LC05NzEzNjg4NjQsLT
+kyNjk0MTY4NywtMTg4Mjg5NjMxMywxOTQ4MDk3NTUxLDU0MTkx
+NjkwNF19
 -->
