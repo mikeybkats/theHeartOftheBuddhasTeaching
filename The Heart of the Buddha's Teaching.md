@@ -132,16 +132,19 @@ One of the primary points of meditation and practice is to become aware of the c
 ```
 To succeed in the practice, we must stop trying to prove that everything is suffering. In fact, we must stop trying to prove anything.
 
-Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 23). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. ``` 
+Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 23). Potter/Ten Speed/Harmony/Rodale. Kindle Edition.
+```
 
-
-
+### Chapter 6: Stopping, Calming, Resting, Healing
+There are two parts of meditation:
+	- Looking deeply
+	-  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNTI5NjI2NjE3LDk0ODUyMTg2MiwtMTAwMz
-U2MjI2NywtMTk2MzgxMzI3NywtMTU5ODcyODgwOSwxNjQ4ODg3
-NTY0LDk2NjY1ODM3NCwtMzI1NjgwMjkwLDg5MzQyNDQyMywtMT
-A5OTcwNzMxNCwtMjkzNzM3NDQ2LDEyMzQyNDIzNSw3NDI0NTI1
-NDEsNjQzMDg4ODk2LDE0NTEwNjU0MjYsMjExMzkzMjUzNywtOT
-cxMzY4ODY0LC05MjY5NDE2ODcsLTE4ODI4OTYzMTMsMTk0ODA5
-NzU1MV19
+eyJoaXN0b3J5IjpbMTkxOTQ1MTgxMSw5NDg1MjE4NjIsLTEwMD
+M1NjIyNjcsLTE5NjM4MTMyNzcsLTE1OTg3Mjg4MDksMTY0ODg4
+NzU2NCw5NjY2NTgzNzQsLTMyNTY4MDI5MCw4OTM0MjQ0MjMsLT
+EwOTk3MDczMTQsLTI5MzczNzQ0NiwxMjM0MjQyMzUsNzQyNDUy
+NTQxLDY0MzA4ODg5NiwxNDUxMDY1NDI2LDIxMTM5MzI1MzcsLT
+k3MTM2ODg2NCwtOTI2OTQxNjg3LC0xODgyODk2MzEzLDE5NDgw
+OTc1NTFdfQ==
 -->
