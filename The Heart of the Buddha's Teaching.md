@@ -152,13 +152,21 @@ It's a cute story – of course many times we are the man on the horse and our s
 
 The horse is "habit energy that pulls us along, and we are powerless." P24
 
-The power of our habit energies are naturally more powerful than our strength of will. How many times have you been at the computer trying "so hard" to re-engage with work, but instead you end up reading a wikipedia article or shopping online. It takes practice and time to develop new habits to counteract these natural habit tendencies. The first step is simply to stop. This is being mindful. I
+The power of our habit energies are naturally more powerful than our strength of will. How many times have you been at the computer trying "so hard" to re-engage with work, but instead you end up reading a wikipedia article or shopping online. It takes practice and time to develop new habits to counteract these natural habit tendencies. The first step is simply to stop. This is mindfulness – it's becoming aware of the river of your subconscious and not allowing it to be your master.
+
+```
+Mindfulness is the energy that allows us to recognize our habit energy and prevent it from dominating us.
+
+Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 25). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
+```
+
+ 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjA5MTI2NTE1LDk0ODUyMTg2MiwtMTAwMz
-U2MjI2NywtMTk2MzgxMzI3NywtMTU5ODcyODgwOSwxNjQ4ODg3
-NTY0LDk2NjY1ODM3NCwtMzI1NjgwMjkwLDg5MzQyNDQyMywtMT
-A5OTcwNzMxNCwtMjkzNzM3NDQ2LDEyMzQyNDIzNSw3NDI0NTI1
-NDEsNjQzMDg4ODk2LDE0NTEwNjU0MjYsMjExMzkzMjUzNywtOT
-cxMzY4ODY0LC05MjY5NDE2ODcsLTE4ODI4OTYzMTMsMTk0ODA5
-NzU1MV19
+eyJoaXN0b3J5IjpbMTA3MTM0MDQ4Nyw5NDg1MjE4NjIsLTEwMD
+M1NjIyNjcsLTE5NjM4MTMyNzcsLTE1OTg3Mjg4MDksMTY0ODg4
+NzU2NCw5NjY2NTgzNzQsLTMyNTY4MDI5MCw4OTM0MjQ0MjMsLT
+EwOTk3MDczMTQsLTI5MzczNzQ0NiwxMjM0MjQyMzUsNzQyNDUy
+NTQxLDY0MzA4ODg5NiwxNDUxMDY1NDI2LDIxMTM5MzI1MzcsLT
+k3MTM2ODg2NCwtOTI2OTQxNjg3LC0xODgyODk2MzEzLDE5NDgw
+OTc1NTFdfQ==
 -->
