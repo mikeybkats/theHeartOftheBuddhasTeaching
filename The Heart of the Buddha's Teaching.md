@@ -125,19 +125,17 @@ Suffering has been in the past treated as a lesson in of itself by some Buddhist
 
 A theory known as the Three Kinds of Suffering has been an attempt to elevate the importance of suffering in the Buddhist faith. In this belief suffering is grouped with "Three Dharma Seals." This places it along side the concepts of *impermanence* and *non-self*. This is not correct. Suffering is a cause or result – usually of attachment to something else. Impermanence and non-self are qualities that help us not get caught up in signs and signifiers. P20-21
 
-Another misunderstanding is that suffering is simply caused by craving. Buddha has said that suffering is caused by craving, but he also said that suffering is caused by other things too. P21
-
-
+Another misunderstanding is that suffering is simply caused by craving. Buddha has said that suffering is caused by craving, but he also said that suffering is caused by other things too. P21 "anger, ignorance, suspicion, arrogance, and wrong views can also cause pain and suffering", P21
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTQ1NzMyMzM3NiwtMTAwMzU2MjI2NywtMT
-k2MzgxMzI3NywtMTU5ODcyODgwOSwxNjQ4ODg3NTY0LDk2NjY1
-ODM3NCwtMzI1NjgwMjkwLDg5MzQyNDQyMywtMTA5OTcwNzMxNC
-wtMjkzNzM3NDQ2LDEyMzQyNDIzNSw3NDI0NTI1NDEsNjQzMDg4
-ODk2LDE0NTEwNjU0MjYsMjExMzkzMjUzNywtOTcxMzY4ODY0LC
-05MjY5NDE2ODcsLTE4ODI4OTYzMTMsMTk0ODA5NzU1MSw1NDE5
-MTY5MDRdfQ==
+eyJoaXN0b3J5IjpbLTE2NDQ4ODcwMjEsLTEwMDM1NjIyNjcsLT
+E5NjM4MTMyNzcsLTE1OTg3Mjg4MDksMTY0ODg4NzU2NCw5NjY2
+NTgzNzQsLTMyNTY4MDI5MCw4OTM0MjQ0MjMsLTEwOTk3MDczMT
+QsLTI5MzczNzQ0NiwxMjM0MjQyMzUsNzQyNDUyNTQxLDY0MzA4
+ODg5NiwxNDUxMDY1NDI2LDIxMTM5MzI1MzcsLTk3MTM2ODg2NC
+wtOTI2OTQxNjg3LC0xODgyODk2MzEzLDE5NDgwOTc1NTEsNTQx
+OTE2OTA0XX0=
 -->
