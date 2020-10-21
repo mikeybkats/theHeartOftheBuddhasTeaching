@@ -187,15 +187,15 @@ First turning – Recognition
 Second turning – Encouragement
 Third turning – Realization
 
-The purpose of the first turning is to recognize that there is suffering and to identify what that suffering is, how it has originated. Is it physical, mental? or physiological? To recognize, is like the work of a doctor when the doctor probes and presses on their patient and asks them, "If I press here does it hurt?" We show the doctor our problem, and this confirms that we have a problem because we are mentioning it.
+The purpose of the first turning is to recognize that there is suffering and to identify what that suffering is, how it has originated. In many cases, something feels wrong, but the cause and feelings are vague. Is it physical, mental? or physiological? To recognize, is like the work of a doctor when the doctor probes and presses on their patient and asks them, "If I press here does it hurt?" We show the doctor our problem, and this confirms that we have a problem because we are mentioning it.
 
    
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTM5MTc1MzgyLDg0MTgxMzU1LC0xMjE1NT
-A4MTA5LDIzNjY1MzQ2NSwxMjk2ODA0MjYsMjA0Njk4NzkxMCwt
-MTQzNjczMTMzMiwtMTI4NTQ5NDc1Niw5NDg1MjE4NjIsLTEwMD
-M1NjIyNjcsLTE5NjM4MTMyNzcsLTE1OTg3Mjg4MDksMTY0ODg4
-NzU2NCw5NjY2NTgzNzQsLTMyNTY4MDI5MCw4OTM0MjQ0MjMsLT
-EwOTk3MDczMTQsLTI5MzczNzQ0NiwxMjM0MjQyMzUsNzQyNDUy
-NTQxXX0=
+eyJoaXN0b3J5IjpbMTQ2MjIwNTc5NiwxMzkxNzUzODIsODQxOD
+EzNTUsLTEyMTU1MDgxMDksMjM2NjUzNDY1LDEyOTY4MDQyNiwy
+MDQ2OTg3OTEwLC0xNDM2NzMxMzMyLC0xMjg1NDk0NzU2LDk0OD
+UyMTg2MiwtMTAwMzU2MjI2NywtMTk2MzgxMzI3NywtMTU5ODcy
+ODgwOSwxNjQ4ODg3NTY0LDk2NjY1ODM3NCwtMzI1NjgwMjkwLD
+g5MzQyNDQyMywtMTA5OTcwNzMxNCwtMjkzNzM3NDQ2LDEyMzQy
+NDIzNV19
 -->
