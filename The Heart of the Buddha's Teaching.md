@@ -181,15 +181,15 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 27). Potter/Ten Speed/H
 ```
 
 ### Chapter 7: Touching our suffering 
-*The wheel of Dharma* - The 
+*The wheel of Dharma* - The metaphor for how
 
    
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjM2NjUzNDY1LDEyOTY4MDQyNiwyMDQ2OT
-g3OTEwLC0xNDM2NzMxMzMyLC0xMjg1NDk0NzU2LDk0ODUyMTg2
-MiwtMTAwMzU2MjI2NywtMTk2MzgxMzI3NywtMTU5ODcyODgwOS
-wxNjQ4ODg3NTY0LDk2NjY1ODM3NCwtMzI1NjgwMjkwLDg5MzQy
-NDQyMywtMTA5OTcwNzMxNCwtMjkzNzM3NDQ2LDEyMzQyNDIzNS
-w3NDI0NTI1NDEsNjQzMDg4ODk2LDE0NTEwNjU0MjYsMjExMzkz
-MjUzN119
+eyJoaXN0b3J5IjpbNTEzNjEyNzU0LDIzNjY1MzQ2NSwxMjk2OD
+A0MjYsMjA0Njk4NzkxMCwtMTQzNjczMTMzMiwtMTI4NTQ5NDc1
+Niw5NDg1MjE4NjIsLTEwMDM1NjIyNjcsLTE5NjM4MTMyNzcsLT
+E1OTg3Mjg4MDksMTY0ODg4NzU2NCw5NjY2NTgzNzQsLTMyNTY4
+MDI5MCw4OTM0MjQ0MjMsLTEwOTk3MDczMTQsLTI5MzczNzQ0Ni
+wxMjM0MjQyMzUsNzQyNDUyNTQxLDY0MzA4ODg5NiwxNDUxMDY1
+NDI2XX0=
 -->
