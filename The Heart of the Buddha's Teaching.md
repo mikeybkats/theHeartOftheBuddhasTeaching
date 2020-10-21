@@ -181,11 +181,11 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 27). Potter/Ten Speed/H
 ```
 
 ### Chapter 7: Touching our suffering 
-
+*The wheel of Dharma* - 
 
    
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbODkwNDY4NzQ5LDIwNDY5ODc5MTAsLTE0Mz
+eyJoaXN0b3J5IjpbMTI5NjgwNDI2LDIwNDY5ODc5MTAsLTE0Mz
 Y3MzEzMzIsLTEyODU0OTQ3NTYsOTQ4NTIxODYyLC0xMDAzNTYy
 MjY3LC0xOTYzODEzMjc3LC0xNTk4NzI4ODA5LDE2NDg4ODc1Nj
 QsOTY2NjU4Mzc0LC0zMjU2ODAyOTAsODkzNDI0NDIzLC0xMDk5
