@@ -186,15 +186,18 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 27). Potter/Ten Speed/H
 First turning – Recognition
 Second turning – Encouragement
 Third turning – Realization
-  
+
+The purpose of the first turning is to recognize that there is suffering and to identify what that suffering is, how it has originated. Is it physical, mental? or physiological? 
+
+   
 
    
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyMTU1MDgxMDksMjM2NjUzNDY1LDEyOT
-Y4MDQyNiwyMDQ2OTg3OTEwLC0xNDM2NzMxMzMyLC0xMjg1NDk0
-NzU2LDk0ODUyMTg2MiwtMTAwMzU2MjI2NywtMTk2MzgxMzI3Ny
-wtMTU5ODcyODgwOSwxNjQ4ODg3NTY0LDk2NjY1ODM3NCwtMzI1
-NjgwMjkwLDg5MzQyNDQyMywtMTA5OTcwNzMxNCwtMjkzNzM3ND
-Q2LDEyMzQyNDIzNSw3NDI0NTI1NDEsNjQzMDg4ODk2LDE0NTEw
-NjU0MjZdfQ==
+eyJoaXN0b3J5IjpbLTIwMjM4MjQ4NzQsLTEyMTU1MDgxMDksMj
+M2NjUzNDY1LDEyOTY4MDQyNiwyMDQ2OTg3OTEwLC0xNDM2NzMx
+MzMyLC0xMjg1NDk0NzU2LDk0ODUyMTg2MiwtMTAwMzU2MjI2Ny
+wtMTk2MzgxMzI3NywtMTU5ODcyODgwOSwxNjQ4ODg3NTY0LDk2
+NjY1ODM3NCwtMzI1NjgwMjkwLDg5MzQyNDQyMywtMTA5OTcwNz
+MxNCwtMjkzNzM3NDQ2LDEyMzQyNDIzNSw3NDI0NTI1NDEsNjQz
+MDg4ODk2XX0=
 -->
