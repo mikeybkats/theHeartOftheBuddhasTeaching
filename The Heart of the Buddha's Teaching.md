@@ -180,13 +180,16 @@ After calming ourselves, the next purpose of meditation is rest. Rest is require
 Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 27). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
 ```
 
+### Chapter 7: Touching our suffering 
+
+
    
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjA0Njk4NzkxMCwtMTQzNjczMTMzMiwtMT
-I4NTQ5NDc1Niw5NDg1MjE4NjIsLTEwMDM1NjIyNjcsLTE5NjM4
-MTMyNzcsLTE1OTg3Mjg4MDksMTY0ODg4NzU2NCw5NjY2NTgzNz
-QsLTMyNTY4MDI5MCw4OTM0MjQ0MjMsLTEwOTk3MDczMTQsLTI5
-MzczNzQ0NiwxMjM0MjQyMzUsNzQyNDUyNTQxLDY0MzA4ODg5Ni
-wxNDUxMDY1NDI2LDIxMTM5MzI1MzcsLTk3MTM2ODg2NCwtOTI2
-OTQxNjg3XX0=
+eyJoaXN0b3J5IjpbODkwNDY4NzQ5LDIwNDY5ODc5MTAsLTE0Mz
+Y3MzEzMzIsLTEyODU0OTQ3NTYsOTQ4NTIxODYyLC0xMDAzNTYy
+MjY3LC0xOTYzODEzMjc3LC0xNTk4NzI4ODA5LDE2NDg4ODc1Nj
+QsOTY2NjU4Mzc0LC0zMjU2ODAyOTAsODkzNDI0NDIzLC0xMDk5
+NzA3MzE0LC0yOTM3Mzc0NDYsMTIzNDI0MjM1LDc0MjQ1MjU0MS
+w2NDMwODg4OTYsMTQ1MTA2NTQyNiwyMTEzOTMyNTM3LC05NzEz
+Njg4NjRdfQ==
 -->
