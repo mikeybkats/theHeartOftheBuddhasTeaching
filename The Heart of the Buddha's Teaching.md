@@ -181,15 +181,17 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 27). Potter/Ten Speed/H
 ```
 
 ### Chapter 7: Touching our suffering 
-*The wheel of Dharma* - The metaphor for how
+*The wheel of Dharma* - The metaphor for how Buddhism is practiced. The wheel is "turned" three times for each Noble Truth.
+
+Fi 
 
    
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNTEzNjEyNzU0LDIzNjY1MzQ2NSwxMjk2OD
-A0MjYsMjA0Njk4NzkxMCwtMTQzNjczMTMzMiwtMTI4NTQ5NDc1
-Niw5NDg1MjE4NjIsLTEwMDM1NjIyNjcsLTE5NjM4MTMyNzcsLT
-E1OTg3Mjg4MDksMTY0ODg4NzU2NCw5NjY2NTgzNzQsLTMyNTY4
-MDI5MCw4OTM0MjQ0MjMsLTEwOTk3MDczMTQsLTI5MzczNzQ0Ni
-wxMjM0MjQyMzUsNzQyNDUyNTQxLDY0MzA4ODg5NiwxNDUxMDY1
-NDI2XX0=
+eyJoaXN0b3J5IjpbMTA4ODYwMDQ4MywyMzY2NTM0NjUsMTI5Nj
+gwNDI2LDIwNDY5ODc5MTAsLTE0MzY3MzEzMzIsLTEyODU0OTQ3
+NTYsOTQ4NTIxODYyLC0xMDAzNTYyMjY3LC0xOTYzODEzMjc3LC
+0xNTk4NzI4ODA5LDE2NDg4ODc1NjQsOTY2NjU4Mzc0LC0zMjU2
+ODAyOTAsODkzNDI0NDIzLC0xMDk5NzA3MzE0LC0yOTM3Mzc0ND
+YsMTIzNDI0MjM1LDc0MjQ1MjU0MSw2NDMwODg4OTYsMTQ1MTA2
+NTQyNl19
 -->
