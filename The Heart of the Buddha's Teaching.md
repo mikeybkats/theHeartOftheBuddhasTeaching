@@ -227,8 +227,10 @@ Any of these kinds of nutriments can be good or bad for us. Eating a sweet food 
 The Buddha in one of his lessons describes a horrifying image: a Cow that is plagued by a terrible skin disease. The cow is so infected with this disease that its skin is completely deteriorated and can find no comfort. When it goes close to a wall or tree, the organisms latch onto the cows body and "suck." When it goes into the water, it happens again. The cows skin is so weakened that even just standing in the air tiny insects will come and land on it and "suck."
 
 We are exposed to invaders from everywhere – seen and unseen. The nutriments are these invaders. Mindfulness is our sentinel that the practitioner can use to protect themselves.       
+
+Mindfulness especially helps the practitioner. Thich Nhat Han warns us of  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjExOTIwOTg1OCw5NzM5MTIzNjIsMTU4Nj
+eyJoaXN0b3J5IjpbMTUzNDg3MTQ4Niw5NzM5MTIzNjIsMTU4Nj
 M2MTc1Niw0NTUyNTUxMjAsMTY2MDkyNTYwMiwxMzkxNzUzODIs
 ODQxODEzNTUsLTEyMTU1MDgxMDksMjM2NjUzNDY1LDEyOTY4MD
 QyNiwyMDQ2OTg3OTEwLC0xNDM2NzMxMzMyLC0xMjg1NDk0NzU2
