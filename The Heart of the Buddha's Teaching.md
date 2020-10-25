@@ -228,13 +228,13 @@ The Buddha in one of his lessons describes a horrifying image: a Cow that is pla
 
 We are exposed to invaders from everywhere – seen and unseen. The nutriments are these invaders. Mindfulness is our sentinel that the practitioner can use to protect themselves. 
 
-Mindfulness especially helps the practitioner avoid pitfalls of the fourth nutriment consciousness. The collective conscious can be negative, toxic. Avoid this, don't drink from the cup of negativity it will to Thich Nhat Han warns us of  
+Mindfulness especially helps the practitioner avoid pitfalls of the fourth nutriment consciousness. The collective conscious can be negative, toxic. Avoid this, don't drink from the cup of negativity. It will toxify your soul. Thich Nhat Han warns us of also
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTA3NjA2NDcxNCw5NzM5MTIzNjIsMTU4Nj
-M2MTc1Niw0NTUyNTUxMjAsMTY2MDkyNTYwMiwxMzkxNzUzODIs
-ODQxODEzNTUsLTEyMTU1MDgxMDksMjM2NjUzNDY1LDEyOTY4MD
-QyNiwyMDQ2OTg3OTEwLC0xNDM2NzMxMzMyLC0xMjg1NDk0NzU2
-LDk0ODUyMTg2MiwtMTAwMzU2MjI2NywtMTk2MzgxMzI3NywtMT
-U5ODcyODgwOSwxNjQ4ODg3NTY0LDk2NjY1ODM3NCwtMzI1Njgw
-MjkwXX0=
+eyJoaXN0b3J5IjpbLTIwMTkwMzE3ODksOTczOTEyMzYyLDE1OD
+YzNjE3NTYsNDU1MjU1MTIwLDE2NjA5MjU2MDIsMTM5MTc1Mzgy
+LDg0MTgxMzU1LC0xMjE1NTA4MTA5LDIzNjY1MzQ2NSwxMjk2OD
+A0MjYsMjA0Njk4NzkxMCwtMTQzNjczMTMzMiwtMTI4NTQ5NDc1
+Niw5NDg1MjE4NjIsLTEwMDM1NjIyNjcsLTE5NjM4MTMyNzcsLT
+E1OTg3Mjg4MDksMTY0ODg4NzU2NCw5NjY2NTgzNzQsLTMyNTY4
+MDI5MF19
 -->
