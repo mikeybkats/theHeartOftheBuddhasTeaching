@@ -216,10 +216,11 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 31). Potter/Ten Speed/H
 
 Nutriments feed our bodies and minds, but also feed our suffering and ailments.
 
-There are three nutriments P30-33: 
-- edible food
+There are four nutriments P30-35: 
+- edible food P30
 - sense impressions – seeing, hearing, smelling, tasting, feeling, thinking
 - intention / desire / volition
+- Consciousness – collective and individual
 
 Any of these kinds of nutriments can be good or bad for us. Eating a sweet food once in a while is a treat, but eating it all the time can lead to ill health. Or, drinking alcohol can poison us. Watching Television can be a nice reprieve from a stressful day, but it can also become a crutch to lean against when reality not longer feels worthwhile to face. If we have a goal in mind (volition), the practicer can be consumed by that goal and not even lose site of it in their sleep. 
 
@@ -227,11 +228,11 @@ The Buddha in one of his lessons describes a horrifying image: a Cow that is pla
 
 We are exposed to invaders from everywhere – seen and unseen. The nutriments are these invaders. Mindfulness is our sentinel that the practitioner can use to protect themselves.       
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTAyNTE3NTQxNiw5NzM5MTIzNjIsMTU4Nj
-M2MTc1Niw0NTUyNTUxMjAsMTY2MDkyNTYwMiwxMzkxNzUzODIs
-ODQxODEzNTUsLTEyMTU1MDgxMDksMjM2NjUzNDY1LDEyOTY4MD
-QyNiwyMDQ2OTg3OTEwLC0xNDM2NzMxMzMyLC0xMjg1NDk0NzU2
-LDk0ODUyMTg2MiwtMTAwMzU2MjI2NywtMTk2MzgxMzI3NywtMT
-U5ODcyODgwOSwxNjQ4ODg3NTY0LDk2NjY1ODM3NCwtMzI1Njgw
-MjkwXX0=
+eyJoaXN0b3J5IjpbLTEzMjIwNTA0MjQsOTczOTEyMzYyLDE1OD
+YzNjE3NTYsNDU1MjU1MTIwLDE2NjA5MjU2MDIsMTM5MTc1Mzgy
+LDg0MTgxMzU1LC0xMjE1NTA4MTA5LDIzNjY1MzQ2NSwxMjk2OD
+A0MjYsMjA0Njk4NzkxMCwtMTQzNjczMTMzMiwtMTI4NTQ5NDc1
+Niw5NDg1MjE4NjIsLTEwMDM1NjIyNjcsLTE5NjM4MTMyNzcsLT
+E1OTg3Mjg4MDksMTY0ODg4NzU2NCw5NjY2NTgzNzQsLTMyNTY4
+MDI5MF19
 -->
