@@ -206,13 +206,21 @@ The purpose of the first turning is to recognize that there is suffering and to 
 
 When the practicer is at the second turning they take the time to look into their suffering to understand its nature. It may take minutes, an hour, days or weeks to understand the suffering (it could take longer too). Part of progressing and understanding suffering is to not forget it, to revisit it. Practicing takes time and processing of information. To process this information requires that the practicer seeks out guidance and support from their friends, loved ones and teacher(s). The practicer must make every effort to find the roots of their suffering.
 
-When the second turning is complete 
+When the second turning is complete the practicer has started to understand the suffering. The third turning is this understanding – Realization. 
+
+```
+Buddha said, “When something has come to be, we have to acknowledge its presence and look deeply into its nature. When we look deeply, we will discover the kinds of nutriments that have helped it come to be and that continue to feed it.”
+
+Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 31). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
+```
+
+Nut
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMzI5NDcxMzA4LDE1ODYzNjE3NTYsNDU1Mj
-U1MTIwLDE2NjA5MjU2MDIsMTM5MTc1MzgyLDg0MTgxMzU1LC0x
-MjE1NTA4MTA5LDIzNjY1MzQ2NSwxMjk2ODA0MjYsMjA0Njk4Nz
-kxMCwtMTQzNjczMTMzMiwtMTI4NTQ5NDc1Niw5NDg1MjE4NjIs
-LTEwMDM1NjIyNjcsLTE5NjM4MTMyNzcsLTE1OTg3Mjg4MDksMT
-Y0ODg4NzU2NCw5NjY2NTgzNzQsLTMyNTY4MDI5MCw4OTM0MjQ0
-MjNdfQ==
+eyJoaXN0b3J5IjpbMTM0OTI3Nzg1OSwxNTg2MzYxNzU2LDQ1NT
+I1NTEyMCwxNjYwOTI1NjAyLDEzOTE3NTM4Miw4NDE4MTM1NSwt
+MTIxNTUwODEwOSwyMzY2NTM0NjUsMTI5NjgwNDI2LDIwNDY5OD
+c5MTAsLTE0MzY3MzEzMzIsLTEyODU0OTQ3NTYsOTQ4NTIxODYy
+LC0xMDAzNTYyMjY3LC0xOTYzODEzMjc3LC0xNTk4NzI4ODA5LD
+E2NDg4ODc1NjQsOTY2NjU4Mzc0LC0zMjU2ODAyOTAsODkzNDI0
+NDIzXX0=
 -->
