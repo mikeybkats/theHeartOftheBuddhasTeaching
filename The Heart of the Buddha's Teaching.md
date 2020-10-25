@@ -216,11 +216,14 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 31). Potter/Ten Speed/H
 
 Nutriments feed our bodies and minds, but also feed our suffering and ailments.
 
-Nutriments: 
+There are three nutriments: 
 - edible food
 - sense impressions – seeing, hearing, smelling, tasting, feeling, thinking
+- intention / desire
+
+Any of these kinds of nutriments can be good or bad for us. Eating a sweet food once in a while is a treat, but eating it all the ti
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTAyNjQyMjAzOSwxNTg2MzYxNzU2LDQ1NT
+eyJoaXN0b3J5IjpbMTMxNDAwMjE0OCwxNTg2MzYxNzU2LDQ1NT
 I1NTEyMCwxNjYwOTI1NjAyLDEzOTE3NTM4Miw4NDE4MTM1NSwt
 MTIxNTUwODEwOSwyMzY2NTM0NjUsMTI5NjgwNDI2LDIwNDY5OD
 c5MTAsLTE0MzY3MzEzMzIsLTEyODU0OTQ3NTYsOTQ4NTIxODYy
