@@ -195,9 +195,9 @@ Third turning – Realization
 
 The purpose of the first turning is to recognize that there is suffering and to identify what that suffering is, how it has originated. In many cases, something feels wrong, but the cause and feelings are vague. Is it physical, mental? or physiological? To recognize, is like the work of a doctor when the doctor probes and presses on their patient and asks them, "If I press here does it hurt?" We show the doctor our problem, and this confirms that we have a problem because we are mentioning it.
 
-When the practicer is at the second turning they take the time to look into their suffering to understand its nature. It may take minutes, an hour, days or weeks to understand the suffering (it could take longer too). Part of progressing and understanding suffering is to not forget it, to revisit it. Practicing takes time.  
+When the practicer is at the second turning they take the time to look into their suffering to understand its nature. It may take minutes, an hour, days or weeks to understand the suffering (it could take longer too). Part of progressing and understanding suffering is to not forget it, to revisit it. Practicing takes time and processing. To process this information requires that the practiv 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTc1MTQ0MjY2MCw0NTUyNTUxMjAsMTY2MD
+eyJoaXN0b3J5IjpbLTU3MTExMTM4OSw0NTUyNTUxMjAsMTY2MD
 kyNTYwMiwxMzkxNzUzODIsODQxODEzNTUsLTEyMTU1MDgxMDks
 MjM2NjUzNDY1LDEyOTY4MDQyNiwyMDQ2OTg3OTEwLC0xNDM2Nz
 MxMzMyLC0xMjg1NDk0NzU2LDk0ODUyMTg2MiwtMTAwMzU2MjI2
