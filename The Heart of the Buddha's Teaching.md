@@ -216,18 +216,20 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 31). Potter/Ten Speed/H
 
 Nutriments feed our bodies and minds, but also feed our suffering and ailments.
 
-There are three nutriments: 
+There are three nutriments P30-33: 
 - edible food
 - sense impressions – seeing, hearing, smelling, tasting, feeling, thinking
-- intention / desire
+- intention / desire / volition
 
-Any of these kinds of nutriments can be good or bad for us. Eating a sweet food once in a while is a treat, but eating it all the time can lead to ill health. Or, drinking alcohol can poison us. Watching Television can be a nice reprieve from a stressful day, but it can also become a crutch to lean against when reality not longer feels worthwhile to face. If we have a goal in mind 
+Any of these kinds of nutriments can be good or bad for us. Eating a sweet food once in a while is a treat, but eating it all the time can lead to ill health. Or, drinking alcohol can poison us. Watching Television can be a nice reprieve from a stressful day, but it can also become a crutch to lean against when reality not longer feels worthwhile to face. If we have a goal in mind (volition), the practicer can be consumed by that goal and not even lose site of it in their sleep. 
+
+The Buddha in one of his Sutras describes 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTA4OTEwNDQ1OSwxNTg2MzYxNzU2LDQ1NT
-I1NTEyMCwxNjYwOTI1NjAyLDEzOTE3NTM4Miw4NDE4MTM1NSwt
-MTIxNTUwODEwOSwyMzY2NTM0NjUsMTI5NjgwNDI2LDIwNDY5OD
-c5MTAsLTE0MzY3MzEzMzIsLTEyODU0OTQ3NTYsOTQ4NTIxODYy
-LC0xMDAzNTYyMjY3LC0xOTYzODEzMjc3LC0xNTk4NzI4ODA5LD
-E2NDg4ODc1NjQsOTY2NjU4Mzc0LC0zMjU2ODAyOTAsODkzNDI0
-NDIzXX0=
+eyJoaXN0b3J5IjpbOTczOTEyMzYyLDE1ODYzNjE3NTYsNDU1Mj
+U1MTIwLDE2NjA5MjU2MDIsMTM5MTc1MzgyLDg0MTgxMzU1LC0x
+MjE1NTA4MTA5LDIzNjY1MzQ2NSwxMjk2ODA0MjYsMjA0Njk4Nz
+kxMCwtMTQzNjczMTMzMiwtMTI4NTQ5NDc1Niw5NDg1MjE4NjIs
+LTEwMDM1NjIyNjcsLTE5NjM4MTMyNzcsLTE1OTg3Mjg4MDksMT
+Y0ODg4NzU2NCw5NjY2NTgzNzQsLTMyNTY4MDI5MCw4OTM0MjQ0
+MjNdfQ==
 -->
