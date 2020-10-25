@@ -193,17 +193,28 @@ First turning – Recognition
 Second turning – Encouragement
 Third turning – Realization
 
+- Suffering 
+	- Recognition, Encouragement, Realization
+- Arising of Suffering
+	- Recognition, Encouragement, Realization
+- Cessation of Suffering
+	- Recognition, Encouragement, Realization
+- The arising of well being
+	- Recognition, Encouragement, Realization
+ 
+
+
 The purpose of the first turning is to recognize that there is suffering and to identify what that suffering is, how it has originated. In many cases, something feels wrong, but the cause and feelings are vague. Is it physical, mental? or physiological? To recognize, is like the work of a doctor when the doctor probes and presses on their patient and asks them, "If I press here does it hurt?" We show the doctor our problem, and this confirms that we have a problem because we are mentioning it.
 
 When the practicer is at the second turning they take the time to look into their suffering to understand its nature. It may take minutes, an hour, days or weeks to understand the suffering (it could take longer too). Part of progressing and understanding suffering is to not forget it, to revisit it. Practicing takes time and processing of information. To process this information requires that the practicer seeks out guidance and support from their friends, loved ones and teacher(s). The practicer must make every effort to find the roots of their suffering.
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTU4NjM2MTc1Niw0NTUyNTUxMjAsMTY2MD
-kyNTYwMiwxMzkxNzUzODIsODQxODEzNTUsLTEyMTU1MDgxMDks
-MjM2NjUzNDY1LDEyOTY4MDQyNiwyMDQ2OTg3OTEwLC0xNDM2Nz
-MxMzMyLC0xMjg1NDk0NzU2LDk0ODUyMTg2MiwtMTAwMzU2MjI2
-NywtMTk2MzgxMzI3NywtMTU5ODcyODgwOSwxNjQ4ODg3NTY0LD
-k2NjY1ODM3NCwtMzI1NjgwMjkwLDg5MzQyNDQyMywtMTA5OTcw
-NzMxNF19
+eyJoaXN0b3J5IjpbLTE5NjUzMzIwMTMsMTU4NjM2MTc1Niw0NT
+UyNTUxMjAsMTY2MDkyNTYwMiwxMzkxNzUzODIsODQxODEzNTUs
+LTEyMTU1MDgxMDksMjM2NjUzNDY1LDEyOTY4MDQyNiwyMDQ2OT
+g3OTEwLC0xNDM2NzMxMzMyLC0xMjg1NDk0NzU2LDk0ODUyMTg2
+MiwtMTAwMzU2MjI2NywtMTk2MzgxMzI3NywtMTU5ODcyODgwOS
+wxNjQ4ODg3NTY0LDk2NjY1ODM3NCwtMzI1NjgwMjkwLDg5MzQy
+NDQyM119
 -->
