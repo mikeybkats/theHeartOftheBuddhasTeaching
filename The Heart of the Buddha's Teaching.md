@@ -221,9 +221,9 @@ There are three nutriments:
 - sense impressions – seeing, hearing, smelling, tasting, feeling, thinking
 - intention / desire
 
-Any of these kinds of nutriments can be good or bad for us. Eating a sweet food once in a while is a treat, but eating it all the ti
+Any of these kinds of nutriments can be good or bad for us. Eating a sweet food once in a while is a treat, but eating it all the time can lead to ill health. Or, drinking alcohol can poison us. Watching Television can be a nice reprieve from a stressful day, but it can also become a crutch to lean against when reality not longer feels worthwhile to face. If we have a goal in mind 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTMxNDAwMjE0OCwxNTg2MzYxNzU2LDQ1NT
+eyJoaXN0b3J5IjpbMTA4OTEwNDQ1OSwxNTg2MzYxNzU2LDQ1NT
 I1NTEyMCwxNjYwOTI1NjAyLDEzOTE3NTM4Miw4NDE4MTM1NSwt
 MTIxNTUwODEwOSwyMzY2NTM0NjUsMTI5NjgwNDI2LDIwNDY5OD
 c5MTAsLTE0MzY3MzEzMzIsLTEyODU0OTQ3NTYsOTQ4NTIxODYy
