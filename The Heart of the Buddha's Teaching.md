@@ -136,6 +136,12 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 23). Potter/Ten Speed/H
 ```
 
 ### Chapter 6: Stopping, Calming, Resting, Healing
+```
+There is a story in Zen circles about a man and a horse. The horse is galloping quickly, and it appears that the man on the horse is going somewhere important. Another man, standing alongside the road, shouts, “Where are you going?” and the first man replies, “I don’t know! Ask the horse!”
+
+Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 24). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
+```
+
 There are two parts of meditation:
 	- Looking deeply – *vipashyana* 
 	- Stopping – *shamatha*
@@ -191,11 +197,11 @@ The purpose of the first turning is to recognize that there is suffering and to 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNDU1MjU1MTIwLDE2NjA5MjU2MDIsMTM5MT
-c1MzgyLDg0MTgxMzU1LC0xMjE1NTA4MTA5LDIzNjY1MzQ2NSwx
-Mjk2ODA0MjYsMjA0Njk4NzkxMCwtMTQzNjczMTMzMiwtMTI4NT
-Q5NDc1Niw5NDg1MjE4NjIsLTEwMDM1NjIyNjcsLTE5NjM4MTMy
-NzcsLTE1OTg3Mjg4MDksMTY0ODg4NzU2NCw5NjY2NTgzNzQsLT
-MyNTY4MDI5MCw4OTM0MjQ0MjMsLTEwOTk3MDczMTQsLTI5Mzcz
-NzQ0Nl19
+eyJoaXN0b3J5IjpbLTc5NDk4MDk3Myw0NTUyNTUxMjAsMTY2MD
+kyNTYwMiwxMzkxNzUzODIsODQxODEzNTUsLTEyMTU1MDgxMDks
+MjM2NjUzNDY1LDEyOTY4MDQyNiwyMDQ2OTg3OTEwLC0xNDM2Nz
+MxMzMyLC0xMjg1NDk0NzU2LDk0ODUyMTg2MiwtMTAwMzU2MjI2
+NywtMTk2MzgxMzI3NywtMTU5ODcyODgwOSwxNjQ4ODg3NTY0LD
+k2NjY1ODM3NCwtMzI1NjgwMjkwLDg5MzQyNDQyMywtMTA5OTcw
+NzMxNF19
 -->
