@@ -223,13 +223,13 @@ There are three nutriments P30-33:
 
 Any of these kinds of nutriments can be good or bad for us. Eating a sweet food once in a while is a treat, but eating it all the time can lead to ill health. Or, drinking alcohol can poison us. Watching Television can be a nice reprieve from a stressful day, but it can also become a crutch to lean against when reality not longer feels worthwhile to face. If we have a goal in mind (volition), the practicer can be consumed by that goal and not even lose site of it in their sleep. 
 
-The Buddha in one of his Sutras describes 
+The Buddha in one of his lessons describes a horrifying image: a Cow that is plagued by a terrible skin disease. The cow is so  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTczOTEyMzYyLDE1ODYzNjE3NTYsNDU1Mj
-U1MTIwLDE2NjA5MjU2MDIsMTM5MTc1MzgyLDg0MTgxMzU1LC0x
-MjE1NTA4MTA5LDIzNjY1MzQ2NSwxMjk2ODA0MjYsMjA0Njk4Nz
-kxMCwtMTQzNjczMTMzMiwtMTI4NTQ5NDc1Niw5NDg1MjE4NjIs
-LTEwMDM1NjIyNjcsLTE5NjM4MTMyNzcsLTE1OTg3Mjg4MDksMT
-Y0ODg4NzU2NCw5NjY2NTgzNzQsLTMyNTY4MDI5MCw4OTM0MjQ0
-MjNdfQ==
+eyJoaXN0b3J5IjpbLTE0MjUyMDE2ODUsOTczOTEyMzYyLDE1OD
+YzNjE3NTYsNDU1MjU1MTIwLDE2NjA5MjU2MDIsMTM5MTc1Mzgy
+LDg0MTgxMzU1LC0xMjE1NTA4MTA5LDIzNjY1MzQ2NSwxMjk2OD
+A0MjYsMjA0Njk4NzkxMCwtMTQzNjczMTMzMiwtMTI4NTQ5NDc1
+Niw5NDg1MjE4NjIsLTEwMDM1NjIyNjcsLTE5NjM4MTMyNzcsLT
+E1OTg3Mjg4MDksMTY0ODg4NzU2NCw5NjY2NTgzNzQsLTMyNTY4
+MDI5MF19
 -->
