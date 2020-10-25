@@ -189,12 +189,13 @@ Third turning – Realization
 
 The purpose of the first turning is to recognize that there is suffering and to identify what that suffering is, how it has originated. In many cases, something feels wrong, but the cause and feelings are vague. Is it physical, mental? or physiological? To recognize, is like the work of a doctor when the doctor probes and presses on their patient and asks them, "If I press here does it hurt?" We show the doctor our problem, and this confirms that we have a problem because we are mentioning it.
 
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTY2MDkyNTYwMiwxMzkxNzUzODIsODQxOD
-EzNTUsLTEyMTU1MDgxMDksMjM2NjUzNDY1LDEyOTY4MDQyNiwy
-MDQ2OTg3OTEwLC0xNDM2NzMxMzMyLC0xMjg1NDk0NzU2LDk0OD
-UyMTg2MiwtMTAwMzU2MjI2NywtMTk2MzgxMzI3NywtMTU5ODcy
-ODgwOSwxNjQ4ODg3NTY0LDk2NjY1ODM3NCwtMzI1NjgwMjkwLD
-g5MzQyNDQyMywtMTA5OTcwNzMxNCwtMjkzNzM3NDQ2LDEyMzQy
-NDIzNV19
+eyJoaXN0b3J5IjpbNDU1MjU1MTIwLDE2NjA5MjU2MDIsMTM5MT
+c1MzgyLDg0MTgxMzU1LC0xMjE1NTA4MTA5LDIzNjY1MzQ2NSwx
+Mjk2ODA0MjYsMjA0Njk4NzkxMCwtMTQzNjczMTMzMiwtMTI4NT
+Q5NDc1Niw5NDg1MjE4NjIsLTEwMDM1NjIyNjcsLTE5NjM4MTMy
+NzcsLTE1OTg3Mjg4MDksMTY0ODg4NzU2NCw5NjY2NTgzNzQsLT
+MyNTY4MDI5MCw4OTM0MjQ0MjMsLTEwOTk3MDczMTQsLTI5Mzcz
+NzQ0Nl19
 -->
