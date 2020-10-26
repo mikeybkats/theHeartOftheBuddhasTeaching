@@ -119,7 +119,7 @@ It's commonly heard that people invoke the name of Buddha mechanically believing
 
 This wrote repetition is practice without intelligence. P19 
 
-Repeating phrases of the sutra can be helpful but only so far, and it may – it will likely – **not lead** to resolving the conflict and suffering inside of you. P19
+Repeating phrases from the sutras can be helpful but only so far, and it may – it will likely – **not lead** to resolving the conflict and suffering inside of you. P19
 
 Suffering has been in the past treated as a lesson in of itself by some Buddhist practitioners. 
 
@@ -245,11 +245,11 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 39). Potter/Ten Speed/H
 
 When the wheel is turned for the third time, the practitioner actually stops using and consuming the things that are causing their suffering. 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTk5NzExNjA3MCwtMjA4NTc5OTk2Nyw0Mz
-U4MTAzMjcsOTczOTEyMzYyLDE1ODYzNjE3NTYsNDU1MjU1MTIw
-LDE2NjA5MjU2MDIsMTM5MTc1MzgyLDg0MTgxMzU1LC0xMjE1NT
-A4MTA5LDIzNjY1MzQ2NSwxMjk2ODA0MjYsMjA0Njk4NzkxMCwt
-MTQzNjczMTMzMiwtMTI4NTQ5NDc1Niw5NDg1MjE4NjIsLTEwMD
-M1NjIyNjcsLTE5NjM4MTMyNzcsLTE1OTg3Mjg4MDksMTY0ODg4
-NzU2NF19
+eyJoaXN0b3J5IjpbNzUzODI5NTYwLDE5OTcxMTYwNzAsLTIwOD
+U3OTk5NjcsNDM1ODEwMzI3LDk3MzkxMjM2MiwxNTg2MzYxNzU2
+LDQ1NTI1NTEyMCwxNjYwOTI1NjAyLDEzOTE3NTM4Miw4NDE4MT
+M1NSwtMTIxNTUwODEwOSwyMzY2NTM0NjUsMTI5NjgwNDI2LDIw
+NDY5ODc5MTAsLTE0MzY3MzEzMzIsLTEyODU0OTQ3NTYsOTQ4NT
+IxODYyLC0xMDAzNTYyMjY3LC0xOTYzODEzMjc3LC0xNTk4NzI4
+ODA5XX0=
 -->
