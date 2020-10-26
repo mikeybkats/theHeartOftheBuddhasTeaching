@@ -29,9 +29,9 @@ It's a cute story – of course many times we are the man on the horse and our s
 
 The horse is "habit energy that pulls us along, and we are powerless." P24
 
-The power of our habit energies are naturally more powerful than our strength of will. How many times have you been at the computer trying "so hard" to re-engage with work, but instead you end up reading a wikipedia article or shopping online. It takes practice and time to develop new habits to counteract these natural habit tendencies. The first step is simply to stop. This is mindfulness – it's becoming aware of the river of your subconscious and not allowing it to be your master. The same way our thoughts can drift
+The power of our habit energies are naturally more powerful than our strength of will. How many times have you been at the computer trying "so hard" to re-engage with work, but instead you end up reading a wikipedia article or shopping online. It takes practice and time to develop new habits to counteract these natural habit tendencies. Allowing our thoughts to drift can ultimately cause our behaviors to drift as well. The first step is simply to stop. This is mindfulness – it's becoming aware of the river of your subconscious and not allowing it to be your master.  
 
-Forgetfulness is the opposite of mindfulness. I think of forgetfulness as a way of neglecting our own realities. We forget to appreciate the world around us, we forget to realize the people we love, we forget we are enjoying a cup of coffee or a cold beer with a friend. This is why it's so important to stop. If you can take the step of stopping, then you can become aware. This is the first function of meditation.
+Drifting thoughts lead to forgetfulness, which is the opposite of mindfulness. I think of forgetfulness as a way of neglecting our own realities. We forget to appreciate the world around us, we forget to realize the people we love, we forget we are enjoying a cup of coffee or a cold beer with a friend. This is why it's so important to stop. If you can take the step of stopping, then you can become aware. This is the first function of meditation.
 
 The second function of meditation is calming. Meditation relieves stress. There are five stages of calming the body:
 
@@ -56,6 +56,6 @@ At the second turning the practitioner takes the time to look into their sufferi
 To process this information requires that the practicer seeks out guidance and support from their friends, loved ones and teacher(s). The practicer must make every effort to find the roots of their suffering. 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3Nzk2MTg1MTEsLTE4MTAxMTM5MTIsMT
-c3MzgwMzQwNl19
+eyJoaXN0b3J5IjpbMjA1NTAyOTczNiwtMTgxMDExMzkxMiwxNz
+czODAzNDA2XX0=
 -->
