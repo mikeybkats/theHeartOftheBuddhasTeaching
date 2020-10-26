@@ -230,16 +230,16 @@ We are exposed to invaders from everywhere – seen and unseen. The nutriments a
 
 Mindfulness especially helps the practitioner avoid pitfalls of the fourth nutriment consciousness. The collective conscious can be negative, toxic. Avoid this, don't drink from the cup of negativity. It will toxify your soul. Thich Nhat Han warns of thinking negatively. It's not hard to sit and contemplate anger, revisit a moment and become angrier and upset as the moment is revisited. 
 
-There are some ways to avoid the negativity in these nutriments:
+There are some ways to master the negativity in these nutriments:
 
 - Stay in the present through mindful breathing. use the breath to pull out of negative thoughts, and moments and to stop the thinking.
-
+- 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNDM1ODEwMzI3LDk3MzkxMjM2MiwxNTg2Mz
-YxNzU2LDQ1NTI1NTEyMCwxNjYwOTI1NjAyLDEzOTE3NTM4Miw4
-NDE4MTM1NSwtMTIxNTUwODEwOSwyMzY2NTM0NjUsMTI5NjgwND
-I2LDIwNDY5ODc5MTAsLTE0MzY3MzEzMzIsLTEyODU0OTQ3NTYs
-OTQ4NTIxODYyLC0xMDAzNTYyMjY3LC0xOTYzODEzMjc3LC0xNT
-k4NzI4ODA5LDE2NDg4ODc1NjQsOTY2NjU4Mzc0LC0zMjU2ODAy
-OTBdfQ==
+eyJoaXN0b3J5IjpbLTEyNjM4OTYwMTksNDM1ODEwMzI3LDk3Mz
+kxMjM2MiwxNTg2MzYxNzU2LDQ1NTI1NTEyMCwxNjYwOTI1NjAy
+LDEzOTE3NTM4Miw4NDE4MTM1NSwtMTIxNTUwODEwOSwyMzY2NT
+M0NjUsMTI5NjgwNDI2LDIwNDY5ODc5MTAsLTE0MzY3MzEzMzIs
+LTEyODU0OTQ3NTYsOTQ4NTIxODYyLC0xMDAzNTYyMjY3LC0xOT
+YzODEzMjc3LC0xNTk4NzI4ODA5LDE2NDg4ODc1NjQsOTY2NjU4
+Mzc0XX0=
 -->
