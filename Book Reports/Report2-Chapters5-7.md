@@ -1,5 +1,5 @@
 
-It's clear that suffering is the reason why we meditate. We meditate for clarity and to help ourselves through our turmoil. That turmoil can be a cluttered mind, a stressful day, an overwhelming situation or any other number of things. The bottom line is that meditation brings practitioners closer some kind of resolution –some kind of truth. The mistake that some have made in the past is to dwell on the suffering itself. To treat suffering as though it is some kind of lesson. Suffering itself is not a lesson. The lessons come from suffering is processed and how to avoid the traps that cause suffering. Indeed, one of the primary points of meditation is to become aware of the causes of suffering. 
+It's clear that suffering is the reason why we meditate. We meditate for clarity and to help ourselves through our turmoil. That turmoil can be a cluttered mind, a stressful day, an overwhelming situation or any other number of things. The bottom line is that meditation brings practitioners closer to some kind of resolution –some kind of truth. The mistake that some have made in the past is to dwell on the suffering itself. To treat suffering as though it is some kind of lesson. Suffering itself is not a lesson. The lessons come from how suffering is processed and how to avoid the traps that cause suffering. Indeed, one of the primary points of meditation is to become aware of the causes of suffering. 
 
 One of the pitfalls is to say that craving or desire is the reason why we suffer. It's not uncommon for some to fixate on a particular reason why they are suffering, because it is an obvious reason to them. We see this in political culture sometimes, when a particular group expresses the importance of a particular issue over all others, even though the issue does not have a large relevance to their own lives. When this happens the actual needs of the group are diminished by that centralized issue. 
 
@@ -52,9 +52,9 @@ The purpose of the first turning is to recognize that there is suffering and to 
 
 At the second turning the practitioner takes the time to look into their suffering to understand its nature. It may take minutes, an hour, days or weeks to understand the suffering (it could take longer too). Part of progressing and understanding suffering is to not forget it, to revisit it. 
 
-To process this information requires that the practicer seeks out guidance and support from their friends, loved ones and teacher(s). The practicer must make every effort to find the roots of their suffering.
+To process this information requires that the practicer seeks out guidance and support from their friends, loved ones and teacher(s). The practicer must make every effort to find the roots of their suffering. 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE1NDY2ODAxMjYsLTE4MTAxMTM5MTIsMT
+eyJoaXN0b3J5IjpbLTExMjkyOTE2NzcsLTE4MTAxMTM5MTIsMT
 c3MzgwMzQwNl19
 -->
