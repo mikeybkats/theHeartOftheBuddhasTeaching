@@ -12,8 +12,26 @@ To recap, there are four noble truths:
 
 In meditation focusing on the incorrect root cause of our suffering prevents realizing the second Noble truth – realizing where suffering is truly coming from. With time and practice it is possible to know very quickly why a negative feeling is felt. This is why it is so important not to jump to an emotional conclusion without thinking it through. As Thich Nhat Han says, "To succeed in the practice, we must stop trying to prove that everything is suffering. In fact, we must stop trying to prove anything." P23.
 
-There are tw 
+There are two parts of meditation:
+	- Looking deeply – *vipashyana* 
+	- Stopping – *shamatha*
+
+Looking deeply is often overemphasized. While stopping is often not as greatly stressed. But, the importance of stopping cannot be overemphasized, it is fundamental to meditation.
+
+```
+There is a story in Zen circles about a man and a horse. The horse is galloping quickly, and it appears that the man on the horse is going somewhere important. Another man, standing alongside the road, shouts, “Where are you going?” and the first man replies, “I don’t know! Ask the horse!”
+
+Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 24). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
+```
+
+It's a cute story – of course many times we are the man on the horse and our subconscious is the horse carrying us away. 
+
+The horse is "habit energy that pulls us along, and we are powerless." P24
+
+The power of our habit energies are naturally more powerful than our strength of will. How many times have you been at the computer trying "so hard" to re-engage with work, but instead you end up reading a wikipedia article or shopping online. It takes practice and time to develop new habits to counteract these natural habit tendencies. The first step is simply to stop. This is mindfulness – it's becoming aware of the river of your subconscious and not allowing it to be your master.
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTUxMzc1MTgxMCwtMTgxMDExMzkxMiwxNz
-czODAzNDA2XX0=
+eyJoaXN0b3J5IjpbLTE4MzA5MTc4OTgsLTE4MTAxMTM5MTIsMT
+c3MzgwMzQwNl19
 -->
