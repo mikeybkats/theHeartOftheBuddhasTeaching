@@ -63,12 +63,28 @@ There are four nutriments P30-35:
 - intention / desire / volition P33 
 - Consciousness – collective and individual P35
 
+Any of these kinds of nutriments can be good or bad for us. Eating a sweet food once in a while is a treat, but eating it all the time can lead to ill health. Or, drinking alcohol can poison us. Watching Television can be a nice reprieve from a stressful day, but it can also become a crutch to lean against when reality not longer feels worthwhile to face. If we have a goal in mind (volition), the practicer can be consumed by that goal and not even lose site of it in their sleep. 
 
+The Buddha in one of his lessons describes a horrifying image: a Cow that is plagued by a terrible skin disease. The cow is so infected with this disease that its skin is completely deteriorated and can find no comfort. When it goes close to a wall or tree, the organisms latch onto the cows body and "suck." When it goes into the water, it happens again. The cows skin is so weakened that even just standing in the air tiny insects will come and land on it and "suck."
 
+We are exposed to invaders from everywhere – seen and unseen. The nutriments are these invaders. Mindfulness is our sentinel that the practitioner can use to protect themselves. 
+
+Mindfulness especially helps the practitioner avoid pitfalls of the fourth nutriment consciousness. The collective conscious can be negative, toxic. Avoid this, don't drink from the cup of negativity. It will toxify your soul. Thich Nhat Han warns of thinking negatively. It's not hard to sit and contemplate anger, revisit a moment and become angrier and upset as the moment is revisited. 
+
+There are some ways to master the negativity in these nutriments:
+
+- Stay in the present through mindful breathing. use the breath to pull out of negative thoughts, and moments and to stop the thinking.
+- Takes measures to learn and not repeat the same mistakes. Keep a journal when meditating. Write down the feelings you recognize. Ask, "what kinds of things (nutriments) have I done that have sustained this suffering." 
+- Don't be a loner. Use the mindfulness and wisdom of your friends, loved ones, and teachers to bolster your own mindfulness.
+- take your notes to a friend to get their thoughts on the subject.
+
+Reflection:
+
+Many of the things in these last three chapters were truly eye opening for me. One thing in particular, 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNDU5NjIwMjUwLC0xODEwMTEzOTEyLDE3Nz
-M4MDM0MDZdfQ==
+eyJoaXN0b3J5IjpbLTEwNzc5ODkwMzcsLTE4MTAxMTM5MTIsMT
+c3MzgwMzQwNl19
 -->
