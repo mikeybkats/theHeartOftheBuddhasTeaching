@@ -45,8 +45,6 @@ After calming ourselves, the next purpose of meditation is rest. Rest is require
 
 If I've learned anything about meditating it's that meditation is about letting go. Oddly, it's about letting go of control to be more into control. Or, Letting go of resistance to be more resistive to something. If I can identify a pain and learn about the root cause I can heal that pain and prevent that pain and ultimately understand that pain.  
 
-// Chapter 7 
-
 *The wheel of Dharma* - The metaphor for how Buddhism is practiced. The wheel is "turned" three times for each Noble Truth.
 
 First turning – Recognition
@@ -60,6 +58,6 @@ At the second turning the practitioner takes the time to look into their sufferi
 To process this information requires that the practicer seeks out guidance and support from their friends, loved ones and teacher(s). The practicer must make every effort to find the roots of their suffering. 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTY1MzkxNjU2OCwtMTgxMDExMzkxMiwxNz
+eyJoaXN0b3J5IjpbMTM0MTUzNTE3NiwtMTgxMDExMzkxMiwxNz
 czODAzNDA2XX0=
 -->
