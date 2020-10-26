@@ -5,13 +5,13 @@ One of the pitfalls is to say that craving or desire is the reason why we suffer
 
 To recap, there are four noble truths: 
 **Four Noble Truths:**
-	- the existcnce of suffering
+	- the existence of suffering
 	- the making of suffering
 	- the possibility of restoring well being
 	- and the Noble Eightfold Path that leads to well being 
 
-In meditation focusing on the incorrect root cause of our suffering prevents realizing the second Noble truth – realizing where suffering is truly coming from. With time and practice it is possible to know very quickly why a negative feeling is felt. This is why it is so important not to jump to an emotional conclusion without thinking it through. If 
+In meditation focusing on the incorrect root cause of our suffering prevents realizing the second Noble truth – realizing where suffering is truly coming from. With time and practice it is possible to know very quickly why a negative feeling is felt. This is why it is so important not to jump to an emotional conclusion without thinking it through.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTQ1NjE1OTgwNSwtMTgxMDExMzkxMiwxNz
-czODAzNDA2XX0=
+eyJoaXN0b3J5IjpbMjI5NzAxNDQ4LC0xODEwMTEzOTEyLDE3Nz
+M4MDM0MDZdfQ==
 -->
