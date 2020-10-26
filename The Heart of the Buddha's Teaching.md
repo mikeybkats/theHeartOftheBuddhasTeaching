@@ -243,9 +243,9 @@ There are many practices that can help us face our suffering, including mindful 
 Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 39). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
 ```
 
-By the time you turn  the third turning of the wheel you 
+When the wheel is turned for the third time, the practitioner actually stops using and consuming the things that are causing their suffering. 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTY4MDAxMzQyNSwtMjA4NTc5OTk2Nyw0Mz
+eyJoaXN0b3J5IjpbMTk5NzExNjA3MCwtMjA4NTc5OTk2Nyw0Mz
 U4MTAzMjcsOTczOTEyMzYyLDE1ODYzNjE3NTYsNDU1MjU1MTIw
 LDE2NjA5MjU2MDIsMTM5MTc1MzgyLDg0MTgxMzU1LC0xMjE1NT
 A4MTA5LDIzNjY1MzQ2NSwxMjk2ODA0MjYsMjA0Njk4NzkxMCwt
