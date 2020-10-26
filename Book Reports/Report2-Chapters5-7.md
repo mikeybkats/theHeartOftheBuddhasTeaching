@@ -80,11 +80,11 @@ There are some ways to master the negativity in these nutriments:
 
 Reflection:
 
-Many of the things in these last three chapters were truly eye opening for me. One thing in particular, my own fixation, and obsession with some of the projects I take on. I often take on a project and completely zone into it. For bettor or for worse. Probably for worse. The project is there when I'm in the room with my wife, it's there when I close my eyes, and it's there when I sleep. However, reading these last chapters have helped me realize that I must focus my ener
+Many of the things in these last three chapters were truly eye opening for me. One thing in particular, my own fixation, and obsession with some of the projects I take on. I often take on a project and completely zone into it. For bettor or for worse. Probably for worse. The project is there when I'm in the room with my wife, it's there when I close my eyes, and it's there when I sleep. However, reading these last chapters have helped me realize that I must not be ruled by my own volitions and desires.  
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTQ1NzgyNjcyNSwtMTgxMDExMzkxMiwxNz
+eyJoaXN0b3J5IjpbMTIxNTc3OTMzOSwtMTgxMDExMzkxMiwxNz
 czODAzNDA2XX0=
 -->
