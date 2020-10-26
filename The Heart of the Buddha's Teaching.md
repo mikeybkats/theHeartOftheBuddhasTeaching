@@ -234,12 +234,15 @@ There are some ways to master the negativity in these nutriments:
 
 - Stay in the present through mindful breathing. use the breath to pull out of negative thoughts, and moments and to stop the thinking.
 - Takes measures to learn and not repeat the same mistakes. Keep a journal when meditating. Write down the feelings you recognize. Ask, "what kinds of things (nutriments) have I done that have sustained this suffering." 
+- Don't be a loner. Use the mindfulness and wisdom of your friends, loved ones, and teachers to bolster your own mindfulness.
+- take your notes to a friend to get their thoughts on the subject.
+- 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTc1Mjk0MjYxNiw0MzU4MTAzMjcsOTczOT
-EyMzYyLDE1ODYzNjE3NTYsNDU1MjU1MTIwLDE2NjA5MjU2MDIs
-MTM5MTc1MzgyLDg0MTgxMzU1LC0xMjE1NTA4MTA5LDIzNjY1Mz
-Q2NSwxMjk2ODA0MjYsMjA0Njk4NzkxMCwtMTQzNjczMTMzMiwt
-MTI4NTQ5NDc1Niw5NDg1MjE4NjIsLTEwMDM1NjIyNjcsLTE5Nj
-M4MTMyNzcsLTE1OTg3Mjg4MDksMTY0ODg4NzU2NCw5NjY2NTgz
-NzRdfQ==
+eyJoaXN0b3J5IjpbLTExNzg3MDk1MzQsNDM1ODEwMzI3LDk3Mz
+kxMjM2MiwxNTg2MzYxNzU2LDQ1NTI1NTEyMCwxNjYwOTI1NjAy
+LDEzOTE3NTM4Miw4NDE4MTM1NSwtMTIxNTUwODEwOSwyMzY2NT
+M0NjUsMTI5NjgwNDI2LDIwNDY5ODc5MTAsLTE0MzY3MzEzMzIs
+LTEyODU0OTQ3NTYsOTQ4NTIxODYyLC0xMDAzNTYyMjY3LC0xOT
+YzODEzMjc3LC0xNTk4NzI4ODA5LDE2NDg4ODc1NjQsOTY2NjU4
+Mzc0XX0=
 -->
