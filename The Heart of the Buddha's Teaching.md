@@ -243,13 +243,13 @@ There are many practices that can help us face our suffering, including mindful 
 Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 39). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
 ```
 
-
+By the time you turn  the third turning of the wheel you 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIwODU3OTk5NjcsNDM1ODEwMzI3LDk3Mz
-kxMjM2MiwxNTg2MzYxNzU2LDQ1NTI1NTEyMCwxNjYwOTI1NjAy
-LDEzOTE3NTM4Miw4NDE4MTM1NSwtMTIxNTUwODEwOSwyMzY2NT
-M0NjUsMTI5NjgwNDI2LDIwNDY5ODc5MTAsLTE0MzY3MzEzMzIs
-LTEyODU0OTQ3NTYsOTQ4NTIxODYyLC0xMDAzNTYyMjY3LC0xOT
-YzODEzMjc3LC0xNTk4NzI4ODA5LDE2NDg4ODc1NjQsOTY2NjU4
-Mzc0XX0=
+eyJoaXN0b3J5IjpbMTY4MDAxMzQyNSwtMjA4NTc5OTk2Nyw0Mz
+U4MTAzMjcsOTczOTEyMzYyLDE1ODYzNjE3NTYsNDU1MjU1MTIw
+LDE2NjA5MjU2MDIsMTM5MTc1MzgyLDg0MTgxMzU1LC0xMjE1NT
+A4MTA5LDIzNjY1MzQ2NSwxMjk2ODA0MjYsMjA0Njk4NzkxMCwt
+MTQzNjczMTMzMiwtMTI4NTQ5NDc1Niw5NDg1MjE4NjIsLTEwMD
+M1NjIyNjcsLTE5NjM4MTMyNzcsLTE1OTg3Mjg4MDksMTY0ODg4
+NzU2NF19
 -->
