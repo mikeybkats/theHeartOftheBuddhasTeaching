@@ -43,7 +43,7 @@ The second function of meditation is calming. Meditation relieves stress. There 
 
 After calming ourselves, the next purpose of meditation is rest. Rest is required for growth and healing. Meditation should not feel hard, let the body sink into it and relax. If there is a struggle, let it go. 
 
-If I've learned anything about meditating it's that medition 
+If I've learned anything about meditating it's that meditation is about letting go. Oddly, it's letting go of control to be more into control. Letting go of resistance to be more resistive to. If I can identi 
 
 // Chapter 7 
 
@@ -60,6 +60,6 @@ At the second turning the practitioner takes the time to look into their sufferi
 To process this information requires that the practicer seeks out guidance and support from their friends, loved ones and teacher(s). The practicer must make every effort to find the roots of their suffering. 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE1NDQxMzQzOTMsLTE4MTAxMTM5MTIsMT
-c3MzgwMzQwNl19
+eyJoaXN0b3J5IjpbMTgwOTcyNDA0NiwtMTgxMDExMzkxMiwxNz
+czODAzNDA2XX0=
 -->
