@@ -236,9 +236,16 @@ There are some ways to master the negativity in these nutriments:
 - Takes measures to learn and not repeat the same mistakes. Keep a journal when meditating. Write down the feelings you recognize. Ask, "what kinds of things (nutriments) have I done that have sustained this suffering." 
 - Don't be a loner. Use the mindfulness and wisdom of your friends, loved ones, and teachers to bolster your own mindfulness.
 - take your notes to a friend to get their thoughts on the subject.
-- 
+
+```
+There are many practices that can help us face our suffering, including mindful walking, mindful breathing, mindful sitting, mindful eating, mindful looking, and mindful listening.
+
+Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 39). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
+```
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTExNzg3MDk1MzQsNDM1ODEwMzI3LDk3Mz
+eyJoaXN0b3J5IjpbLTIwODU3OTk5NjcsNDM1ODEwMzI3LDk3Mz
 kxMjM2MiwxNTg2MzYxNzU2LDQ1NTI1NTEyMCwxNjYwOTI1NjAy
 LDEzOTE3NTM4Miw4NDE4MTM1NSwtMTIxNTUwODEwOSwyMzY2NT
 M0NjUsMTI5NjgwNDI2LDIwNDY5ODc5MTAsLTE0MzY3MzEzMzIs
