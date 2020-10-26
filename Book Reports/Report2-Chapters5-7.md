@@ -55,7 +55,7 @@ The purpose of the first turning is to recognize that there is suffering and to 
 
 At the second turning the practitioner takes the time to look into their suffering to understand its nature. It may take minutes, an hour, days or weeks to understand the suffering (it could take longer too). Part of progressing and understanding suffering is to not forget it, to revisit it. 
 
-Nutriments feed our bodies and minds, but also feed our suffering and ailments.
+Suffering is derived from the things we consume with our bodies. In Buddhism these are called nutriments. Nutriments feed our bodies and minds just like food, but also feed our suffering.
 
 There are four nutriments P30-35: 
 - edible food P30
@@ -63,12 +63,12 @@ There are four nutriments P30-35:
 - intention / desire / volition P33 
 - Consciousness – collective and individual P35
 
-To process this information requires that the practicer is a diligent student. They should take notes when they meditate, seek out guidance and support from their friends, loved ones and teacher(s). The practicer must make every effort to find the roots of their suffering. 
+
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3MDYyNDk2ODksLTE4MTAxMTM5MTIsMT
-c3MzgwMzQwNl19
+eyJoaXN0b3J5IjpbNDU5NjIwMjUwLC0xODEwMTEzOTEyLDE3Nz
+M4MDM0MDZdfQ==
 -->
