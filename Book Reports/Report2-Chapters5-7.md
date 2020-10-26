@@ -43,6 +43,10 @@ The second function of meditation is calming. Meditation relieves stress. There 
 
 After calming ourselves, the next purpose of meditation is rest. Rest is required for growth and healing. Meditation should not feel hard, let the body sink into it and relax. If there is a struggle, let it go. 
 
+If I've learned anything about meditating it's that medition 
+
+// Chapter 7 
+
 *The wheel of Dharma* - The metaphor for how Buddhism is practiced. The wheel is "turned" three times for each Noble Truth.
 
 First turning – Recognition
@@ -56,6 +60,6 @@ At the second turning the practitioner takes the time to look into their sufferi
 To process this information requires that the practicer seeks out guidance and support from their friends, loved ones and teacher(s). The practicer must make every effort to find the roots of their suffering. 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjA1NTAyOTczNiwtMTgxMDExMzkxMiwxNz
-czODAzNDA2XX0=
+eyJoaXN0b3J5IjpbLTE1NDQxMzQzOTMsLTE4MTAxMTM5MTIsMT
+c3MzgwMzQwNl19
 -->
