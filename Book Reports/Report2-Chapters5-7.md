@@ -11,7 +11,7 @@ One of the pitfalls is to jump to a conclusion about why there is suffering, or 
 
 In meditation focusing on the incorrect root cause of our suffering prevents realizing the second Noble truth – realizing where suffering is truly coming from. With time and practice it is possible to know very quickly why a negative feeling is felt. This is why it is so important not to jump to an emotional conclusion without thinking it through. As Thich Nhat Han says, "To succeed in the practice, we must stop trying to prove that everything is suffering. In fact, we must stop trying to prove anything." P23.
 
-Meditation is not something 
+Meditation is not something to do for a specific gain. It's a technique that can be employed at any time to help gain clarity in your mind. It can be done while you're walking. Sitting. Standing. Focusing on your breath c
 
 There are two parts of meditation:
 	- Looking deeply – *vipashyana* 
@@ -56,6 +56,6 @@ At the second turning the practitioner takes the time to look into their sufferi
 To process this information requires that the practicer seeks out guidance and support from their friends, loved ones and teacher(s). The practicer must make every effort to find the roots of their suffering. 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTA4OTc0MjcwMCwtMTgxMDExMzkxMiwxNz
+eyJoaXN0b3J5IjpbMTEzNDc5MzI2NywtMTgxMDExMzkxMiwxNz
 czODAzNDA2XX0=
 -->
