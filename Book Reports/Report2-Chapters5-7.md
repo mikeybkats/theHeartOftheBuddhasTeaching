@@ -55,12 +55,20 @@ The purpose of the first turning is to recognize that there is suffering and to 
 
 At the second turning the practitioner takes the time to look into their suffering to understand its nature. It may take minutes, an hour, days or weeks to understand the suffering (it could take longer too). Part of progressing and understanding suffering is to not forget it, to revisit it. 
 
-To process this information requires that the practicer seeks out guidance and support from their friends, loved ones and teacher(s). The practicer must make every effort to find the roots of their suffering. 
+Nutriments feed our bodies and minds, but also feed our suffering and ailments.
+
+There are four nutriments P30-35: 
+- edible food P30
+- sense impressions – seeing, hearing, smelling, tasting, feeling, thinking P31
+- intention / desire / volition P33 
+- Consciousness – collective and individual P35
+
+To process this information requires that the practicer is a diligent student. They should take notes when they meditate, seek out guidance and support from their friends, loved ones and teacher(s). The practicer must make every effort to find the roots of their suffering. 
 
 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIxMTcxMTIxMiwtMTgxMDExMzkxMiwxNz
-czODAzNDA2XX0=
+eyJoaXN0b3J5IjpbLTE3MDYyNDk2ODksLTE4MTAxMTM5MTIsMT
+c3MzgwMzQwNl19
 -->
