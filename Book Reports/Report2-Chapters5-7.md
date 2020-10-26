@@ -3,8 +3,15 @@ It's clear that suffering is the reason why we meditate. We meditate for clarity
 
 One of the pitfalls is to say that craving or desire is the reason why we suffer. It's not uncommon for some to fixate on a particular reason why they are suffering, because it is an obvious reason to them. We see this in political culture sometimes, when a particular group expresses the importance of a particular issue over all others, even though the issue does not have a large relevance to their own lives. When this happens the actual needs of the group are diminished by that centralized issue. 
 
-In meditation focusing on the incorrect root cause prevents realizing the second Noble truth – realizing where suffering is truly coming from. With time and practice it is possible to know very quickly why a negative feeling is felt. This 
+To recap, there are four noble truths: 
+**Four Noble Truths:**
+	- the existcnce of suffering
+	- the making of suffering
+	- the possibility of restoring well being
+	- and the Noble Eightfold Path that leads to well being 
+
+In meditation focusing on the incorrect root cause of our suffering prevents realizing the second Noble truth – realizing where suffering is truly coming from. With time and practice it is possible to know very quickly why a negative feeling is felt. This is why it is so important not to jump to an emotional conclusion without thinking it through. If 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNTQxODYyNDUsLTE4MTAxMTM5MTIsMTc3Mz
-gwMzQwNl19
+eyJoaXN0b3J5IjpbLTQ1NjE1OTgwNSwtMTgxMDExMzkxMiwxNz
+czODAzNDA2XX0=
 -->
