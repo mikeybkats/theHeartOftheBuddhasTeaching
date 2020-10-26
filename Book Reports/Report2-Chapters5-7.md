@@ -10,8 +10,10 @@ To recap, there are four noble truths:
 	- the possibility of restoring well being
 	- and the Noble Eightfold Path that leads to well being 
 
-In meditation focusing on the incorrect root cause of our suffering prevents realizing the second Noble truth – realizing where suffering is truly coming from. With time and practice it is possible to know very quickly why a negative feeling is felt. This is why it is so important not to jump to an emotional conclusion without thinking it through.
+In meditation focusing on the incorrect root cause of our suffering prevents realizing the second Noble truth – realizing where suffering is truly coming from. With time and practice it is possible to know very quickly why a negative feeling is felt. This is why it is so important not to jump to an emotional conclusion without thinking it through. As Thich Nhat Han says, "To succeed in the practice, we must stop trying to prove that everything is suffering. In fact, we must stop trying to prove anything." P23.
+
+There are tw 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjI5NzAxNDQ4LC0xODEwMTEzOTEyLDE3Nz
-M4MDM0MDZdfQ==
+eyJoaXN0b3J5IjpbLTUxMzc1MTgxMCwtMTgxMDExMzkxMiwxNz
+czODAzNDA2XX0=
 -->
