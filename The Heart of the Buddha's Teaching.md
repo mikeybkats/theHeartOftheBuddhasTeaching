@@ -251,13 +251,13 @@ To be more joyful you must "water the seeds of our own joy." How can you be happ
 
 The third Noble truth is the cessation of suffering. Do you nourish joy in yourself? In others? Does the joy of others help to cultivate joy in yourself? Or, does the joy of others do the opposite? You can only bring suffering to an end if you can recognize and practice these things. 
 
-
+The first step of the Third Noble Truth is recognizing that you either have, had or could potentially have the release or absence of suffering. 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyMTk3MDM2MTksNzk3MDg4ODY1LDc1Mz
-gyOTU2MCwxOTk3MTE2MDcwLC0yMDg1Nzk5OTY3LDQzNTgxMDMy
-Nyw5NzM5MTIzNjIsMTU4NjM2MTc1Niw0NTUyNTUxMjAsMTY2MD
-kyNTYwMiwxMzkxNzUzODIsODQxODEzNTUsLTEyMTU1MDgxMDks
-MjM2NjUzNDY1LDEyOTY4MDQyNiwyMDQ2OTg3OTEwLC0xNDM2Nz
-MxMzMyLC0xMjg1NDk0NzU2LDk0ODUyMTg2MiwtMTAwMzU2MjI2
-N119
+eyJoaXN0b3J5IjpbNzc1NDcwMzAsNzk3MDg4ODY1LDc1MzgyOT
+U2MCwxOTk3MTE2MDcwLC0yMDg1Nzk5OTY3LDQzNTgxMDMyNyw5
+NzM5MTIzNjIsMTU4NjM2MTc1Niw0NTUyNTUxMjAsMTY2MDkyNT
+YwMiwxMzkxNzUzODIsODQxODEzNTUsLTEyMTU1MDgxMDksMjM2
+NjUzNDY1LDEyOTY4MDQyNiwyMDQ2OTg3OTEwLC0xNDM2NzMxMz
+MyLC0xMjg1NDk0NzU2LDk0ODUyMTg2MiwtMTAwMzU2MjI2N119
+
 -->
