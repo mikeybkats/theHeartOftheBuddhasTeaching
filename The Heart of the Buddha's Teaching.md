@@ -250,12 +250,14 @@ When the wheel is turned for the third time, the practitioner actually stops usi
 To be more joyful you must "water the seeds of our own joy." How can you be happy without proactively taking steps towards it? Mindfulness is this proactive step. It can help us see and make happiness last longer.
 
 The third Noble truth is the cessation of suffering. Do you nourish joy in yourself? In others? Does the joy of others help to cultivate joy in yourself? Or, does the joy of others do the opposite? You can only bring suffering to an end if you can recognize and practice these things. 
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNzk3MDg4ODY1LDc1MzgyOTU2MCwxOTk3MT
-E2MDcwLC0yMDg1Nzk5OTY3LDQzNTgxMDMyNyw5NzM5MTIzNjIs
-MTU4NjM2MTc1Niw0NTUyNTUxMjAsMTY2MDkyNTYwMiwxMzkxNz
-UzODIsODQxODEzNTUsLTEyMTU1MDgxMDksMjM2NjUzNDY1LDEy
-OTY4MDQyNiwyMDQ2OTg3OTEwLC0xNDM2NzMxMzMyLC0xMjg1ND
-k0NzU2LDk0ODUyMTg2MiwtMTAwMzU2MjI2NywtMTk2MzgxMzI3
+eyJoaXN0b3J5IjpbLTEyMTk3MDM2MTksNzk3MDg4ODY1LDc1Mz
+gyOTU2MCwxOTk3MTE2MDcwLC0yMDg1Nzk5OTY3LDQzNTgxMDMy
+Nyw5NzM5MTIzNjIsMTU4NjM2MTc1Niw0NTUyNTUxMjAsMTY2MD
+kyNTYwMiwxMzkxNzUzODIsODQxODEzNTUsLTEyMTU1MDgxMDks
+MjM2NjUzNDY1LDEyOTY4MDQyNiwyMDQ2OTg3OTEwLC0xNDM2Nz
+MxMzMyLC0xMjg1NDk0NzU2LDk0ODUyMTg2MiwtMTAwMzU2MjI2
 N119
 -->
