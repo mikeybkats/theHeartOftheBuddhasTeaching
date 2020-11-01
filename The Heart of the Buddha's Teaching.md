@@ -255,15 +255,19 @@ The first step (first turning) of the Third Noble Truth is recognizing that you 
 
 Encourage (Second turning) yourself that it is worth it to find this happiness. It is possible to end suffering by realizing that it is not worth bothering over. Don't back down in the face of difficulty or pain. Accept it, look it in the eye, embrace it, and understand it. This will help you grow happiness inside of yourself. P42
 
+```quote
+Like good organic gardeners, they do not discriminate in favor of the flowers or against the garbage. They know how to transform garbage into flowers. Don’t throw away your suffering. Touch your suffering. Face it directly, and your joy will become deeper. You know that suffering and joy are both impermanent. Learn the art of cultivating joy.
 
+Hanh, Thich Nhat. The Heart of the Buddha's Teaching (pp. 42-43). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
+```
 
  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNDEyMDc3MTU4LDQ0MjcxODA1Nyw3OTcwOD
-g4NjUsNzUzODI5NTYwLDE5OTcxMTYwNzAsLTIwODU3OTk5Njcs
-NDM1ODEwMzI3LDk3MzkxMjM2MiwxNTg2MzYxNzU2LDQ1NTI1NT
-EyMCwxNjYwOTI1NjAyLDEzOTE3NTM4Miw4NDE4MTM1NSwtMTIx
-NTUwODEwOSwyMzY2NTM0NjUsMTI5NjgwNDI2LDIwNDY5ODc5MT
-AsLTE0MzY3MzEzMzIsLTEyODU0OTQ3NTYsOTQ4NTIxODYyXX0=
+eyJoaXN0b3J5IjpbMTk5NjIzNjU2OCw0NDI3MTgwNTcsNzk3MD
+g4ODY1LDc1MzgyOTU2MCwxOTk3MTE2MDcwLC0yMDg1Nzk5OTY3
+LDQzNTgxMDMyNyw5NzM5MTIzNjIsMTU4NjM2MTc1Niw0NTUyNT
+UxMjAsMTY2MDkyNTYwMiwxMzkxNzUzODIsODQxODEzNTUsLTEy
+MTU1MDgxMDksMjM2NjUzNDY1LDEyOTY4MDQyNiwyMDQ2OTg3OT
+EwLC0xNDM2NzMxMzMyLC0xMjg1NDk0NzU2LDk0ODUyMTg2Ml19
 
 -->
