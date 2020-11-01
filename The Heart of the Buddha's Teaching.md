@@ -247,15 +247,19 @@ When the wheel is turned for the third time, the practitioner actually stops usi
 
 ### Chapter 8: Realizing our Well-Being
 
-To be more joyful you must "water the seeds of our own joy." How can you be happy without proactively taking steps towards it? Mindfulness is this proactive step. It can help us see and make happiness last longer.
+To be more joyful you must "water the seeds of our own joy." How can you be happy without proactively taking steps towards it? Mindfulness is this proactive step. It can help us see and make happiness last longer. P41
 
-The third Noble truth is the cessation of suffering. Do you nourish joy in yourself? In others? Does the joy of others help to cultivate joy in yourself? Or, does the joy of others do the opposite? You can only bring suffering to an end if you can recognize and practice these things. 
+The third Noble truth is the cessation of suffering. Do you nourish joy in yourself? In others? Does the joy of others help to cultivate joy in yourself? Or, does the joy of others do the opposite? You can only bring suffering to an end if you can recognize and practice these things. P41
 
-The first step (first turning) of the Third Noble Truth is recognizing that you either have, had or could potentially have the release or absence of suffering. If there is no joy at the present, maybe you remember some joy, or observe joy in others. This shows you that well being is possible!
+The first step (first turning) of the Third Noble Truth is recognizing that you either have, had or could potentially have the release or absence of suffering. If there is no joy at the present, maybe you remember some joy, or observe joy in others. This shows you that well being is possible! P42
 
-Encourage (Second turning) yourself that it is worth it to find this happiness. It is possible to end suffering by realizing that it is not worth bothering over. Don't back down in the face of difficulty or pain. Accept it, look it in the eye, embraceunderstand it and 
+Encourage (Second turning) yourself that it is worth it to find this happiness. It is possible to end suffering by realizing that it is not worth bothering over. Don't back down in the face of difficulty or pain. Accept it, look it in the eye, embrace it, and understand it. This will help you grow happiness inside of yourself. P42
+
+
+
+ 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTQ2NDAzMTgxLDQ0MjcxODA1Nyw3OTcwOD
+eyJoaXN0b3J5IjpbNDEyMDc3MTU4LDQ0MjcxODA1Nyw3OTcwOD
 g4NjUsNzUzODI5NTYwLDE5OTcxMTYwNzAsLTIwODU3OTk5Njcs
 NDM1ODEwMzI3LDk3MzkxMjM2MiwxNTg2MzYxNzU2LDQ1NTI1NT
 EyMCwxNjYwOTI1NjAyLDEzOTE3NTM4Miw4NDE4MTM1NSwtMTIx
