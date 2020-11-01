@@ -245,13 +245,15 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 39). Potter/Ten Speed/H
 
 When the wheel is turned for the third time, the practitioner actually stops using and consuming the things that are causing their suffering. 
 
-### Chapter 8: Realizing our Well being
+### Chapter 8: Realizing our Well-Being
+
+To be more joyful you must "water the seeds of our own joy." How can you be 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE2OTUwMDg3MzIsNzUzODI5NTYwLDE5OT
-cxMTYwNzAsLTIwODU3OTk5NjcsNDM1ODEwMzI3LDk3MzkxMjM2
-MiwxNTg2MzYxNzU2LDQ1NTI1NTEyMCwxNjYwOTI1NjAyLDEzOT
-E3NTM4Miw4NDE4MTM1NSwtMTIxNTUwODEwOSwyMzY2NTM0NjUs
-MTI5NjgwNDI2LDIwNDY5ODc5MTAsLTE0MzY3MzEzMzIsLTEyOD
-U0OTQ3NTYsOTQ4NTIxODYyLC0xMDAzNTYyMjY3LC0xOTYzODEz
-Mjc3XX0=
+eyJoaXN0b3J5IjpbLTQxNTMwNzk5Miw3NTM4Mjk1NjAsMTk5Nz
+ExNjA3MCwtMjA4NTc5OTk2Nyw0MzU4MTAzMjcsOTczOTEyMzYy
+LDE1ODYzNjE3NTYsNDU1MjU1MTIwLDE2NjA5MjU2MDIsMTM5MT
+c1MzgyLDg0MTgxMzU1LC0xMjE1NTA4MTA5LDIzNjY1MzQ2NSwx
+Mjk2ODA0MjYsMjA0Njk4NzkxMCwtMTQzNjczMTMzMiwtMTI4NT
+Q5NDc1Niw5NDg1MjE4NjIsLTEwMDM1NjIyNjcsLTE5NjM4MTMy
+NzddfQ==
 -->
