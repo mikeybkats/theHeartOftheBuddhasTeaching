@@ -253,13 +253,13 @@ The third Noble truth is the cessation of suffering. Do you nourish joy in yours
 
 The first step (first turning) of the Third Noble Truth is recognizing that you either have, had or could potentially have the release or absence of suffering. If there is no joy at the present, maybe you remember some joy, or observe joy in others. This shows you that well being is possible!
 
-Encourage (Second turning) yourself that it is worth it to find this happiness. 
+Encourage (Second turning) yourself that it is worth it to find this happiness. It is possible to end suffering by realizing that it is not worth bothering over. Don't back down in the face of difficulty or pain. Accept it, look it in the eye, embraceunderstand it and 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNDQyNzE4MDU3LDc5NzA4ODg2NSw3NTM4Mj
-k1NjAsMTk5NzExNjA3MCwtMjA4NTc5OTk2Nyw0MzU4MTAzMjcs
-OTczOTEyMzYyLDE1ODYzNjE3NTYsNDU1MjU1MTIwLDE2NjA5Mj
-U2MDIsMTM5MTc1MzgyLDg0MTgxMzU1LC0xMjE1NTA4MTA5LDIz
-NjY1MzQ2NSwxMjk2ODA0MjYsMjA0Njk4NzkxMCwtMTQzNjczMT
-MzMiwtMTI4NTQ5NDc1Niw5NDg1MjE4NjIsLTEwMDM1NjIyNjdd
-fQ==
+eyJoaXN0b3J5IjpbOTQ2NDAzMTgxLDQ0MjcxODA1Nyw3OTcwOD
+g4NjUsNzUzODI5NTYwLDE5OTcxMTYwNzAsLTIwODU3OTk5Njcs
+NDM1ODEwMzI3LDk3MzkxMjM2MiwxNTg2MzYxNzU2LDQ1NTI1NT
+EyMCwxNjYwOTI1NjAyLDEzOTE3NTM4Miw4NDE4MTM1NSwtMTIx
+NTUwODEwOSwyMzY2NTM0NjUsMTI5NjgwNDI2LDIwNDY5ODc5MT
+AsLTE0MzY3MzEzMzIsLTEyODU0OTQ3NTYsOTQ4NTIxODYyXX0=
+
 -->
