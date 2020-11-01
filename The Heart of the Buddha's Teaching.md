@@ -244,12 +244,14 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 39). Potter/Ten Speed/H
 ```
 
 When the wheel is turned for the third time, the practitioner actually stops using and consuming the things that are causing their suffering. 
+
+### Chapter 8: Realizing our Well being
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNzUzODI5NTYwLDE5OTcxMTYwNzAsLTIwOD
-U3OTk5NjcsNDM1ODEwMzI3LDk3MzkxMjM2MiwxNTg2MzYxNzU2
-LDQ1NTI1NTEyMCwxNjYwOTI1NjAyLDEzOTE3NTM4Miw4NDE4MT
-M1NSwtMTIxNTUwODEwOSwyMzY2NTM0NjUsMTI5NjgwNDI2LDIw
-NDY5ODc5MTAsLTE0MzY3MzEzMzIsLTEyODU0OTQ3NTYsOTQ4NT
-IxODYyLC0xMDAzNTYyMjY3LC0xOTYzODEzMjc3LC0xNTk4NzI4
-ODA5XX0=
+eyJoaXN0b3J5IjpbLTE2OTUwMDg3MzIsNzUzODI5NTYwLDE5OT
+cxMTYwNzAsLTIwODU3OTk5NjcsNDM1ODEwMzI3LDk3MzkxMjM2
+MiwxNTg2MzYxNzU2LDQ1NTI1NTEyMCwxNjYwOTI1NjAyLDEzOT
+E3NTM4Miw4NDE4MTM1NSwtMTIxNTUwODEwOSwyMzY2NTM0NjUs
+MTI5NjgwNDI2LDIwNDY5ODc5MTAsLTE0MzY3MzEzMzIsLTEyOD
+U0OTQ3NTYsOTQ4NTIxODYyLC0xMDAzNTYyMjY3LC0xOTYzODEz
+Mjc3XX0=
 -->
