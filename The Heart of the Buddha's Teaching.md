@@ -279,12 +279,13 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 51). Potter/Ten Speed/H
 ```
 
 Practicing mindfulness helps us identify the seeds that are growing in ourselves. The capacity to wake up and understand things as they are is in each of us. P51 p3
-<!--stackedit_data:
-eyJoaXN0b3J5IjpbNTQxNjA2NjAzLDEzNjQyMzE4MTIsNjY4NT
-g1NjI4LDQ0MjcxODA1Nyw3OTcwODg4NjUsNzUzODI5NTYwLDE5
-OTcxMTYwNzAsLTIwODU3OTk5NjcsNDM1ODEwMzI3LDk3MzkxMj
-M2MiwxNTg2MzYxNzU2LDQ1NTI1NTEyMCwxNjYwOTI1NjAyLDEz
-OTE3NTM4Miw4NDE4MTM1NSwtMTIxNTUwODEwOSwyMzY2NTM0Nj
-UsMTI5NjgwNDI2LDIwNDY5ODc5MTAsLTE0MzY3MzEzMzJdfQ==
 
+The idea of right view is that we can make a judgement about which seeds are wholesome and in turn water those seeds. We can make a judgement about what 
+<!--stackedit_data:
+eyJoaXN0b3J5IjpbMzYwNjc0NjcsMTM2NDIzMTgxMiw2Njg1OD
+U2MjgsNDQyNzE4MDU3LDc5NzA4ODg2NSw3NTM4Mjk1NjAsMTk5
+NzExNjA3MCwtMjA4NTc5OTk2Nyw0MzU4MTAzMjcsOTczOTEyMz
+YyLDE1ODYzNjE3NTYsNDU1MjU1MTIwLDE2NjA5MjU2MDIsMTM5
+MTc1MzgyLDg0MTgxMzU1LC0xMjE1NTA4MTA5LDIzNjY1MzQ2NS
+wxMjk2ODA0MjYsMjA0Njk4NzkxMCwtMTQzNjczMTMzMl19
 -->
