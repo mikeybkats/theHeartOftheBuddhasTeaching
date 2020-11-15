@@ -264,13 +264,19 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (pp. 42-43). Potter/Ten Spe
 ```
 
  ### Chapter 9: Right View
-"Right view is, first of all, a deep understanding of the Four Noble Truths. 
+"Right view is, first of all, a deep understanding of the Four Noble Truths." P51
+
+```
+The four noble truths: The Existence of Suffering, the Making of Suffering, the Possibility of restoring well being.
+``` 
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTg5NjAxNjU3MCw2Njg1ODU2MjgsNDQyNz
-E4MDU3LDc5NzA4ODg2NSw3NTM4Mjk1NjAsMTk5NzExNjA3MCwt
-MjA4NTc5OTk2Nyw0MzU4MTAzMjcsOTczOTEyMzYyLDE1ODYzNj
-E3NTYsNDU1MjU1MTIwLDE2NjA5MjU2MDIsMTM5MTc1MzgyLDg0
-MTgxMzU1LC0xMjE1NTA4MTA5LDIzNjY1MzQ2NSwxMjk2ODA0Mj
-YsMjA0Njk4NzkxMCwtMTQzNjczMTMzMiwtMTI4NTQ5NDc1Nl19
+eyJoaXN0b3J5IjpbOTI0NTczODUxLDY2ODU4NTYyOCw0NDI3MT
+gwNTcsNzk3MDg4ODY1LDc1MzgyOTU2MCwxOTk3MTE2MDcwLC0y
+MDg1Nzk5OTY3LDQzNTgxMDMyNyw5NzM5MTIzNjIsMTU4NjM2MT
+c1Niw0NTUyNTUxMjAsMTY2MDkyNTYwMiwxMzkxNzUzODIsODQx
+ODEzNTUsLTEyMTU1MDgxMDksMjM2NjUzNDY1LDEyOTY4MDQyNi
+wyMDQ2OTg3OTEwLC0xNDM2NzMxMzMyLC0xMjg1NDk0NzU2XX0=
 
 -->
