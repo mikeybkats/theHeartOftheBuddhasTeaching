@@ -272,13 +272,19 @@ The four noble truths: The Existence of Suffering, the Making of Suffering, the 
 
 In our consciousness there are seeds that we plant. We can plant unhealthy seeds or healthy seeds. Unwholesome roots and wholesome roots grow from these seeds that we plant.
 
+```
+If you are a loyal person, it is because the seed of loyalty is in you. But don’t think that the seed of betrayal isn’t also in you. If you live in an environment where your seed of loyalty is watered, you will be a loyal person. But if your seed of betrayal is watered, you may betray even those you love. You’ll feel guilty about it, but if the seed of betrayal in you becomes strong, you may do it.
+
+Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 51). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
+```
+
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMzE1MzYxNjIsNjY4NTg1NjI4LDQ0MjcxOD
-A1Nyw3OTcwODg4NjUsNzUzODI5NTYwLDE5OTcxMTYwNzAsLTIw
-ODU3OTk5NjcsNDM1ODEwMzI3LDk3MzkxMjM2MiwxNTg2MzYxNz
-U2LDQ1NTI1NTEyMCwxNjYwOTI1NjAyLDEzOTE3NTM4Miw4NDE4
-MTM1NSwtMTIxNTUwODEwOSwyMzY2NTM0NjUsMTI5NjgwNDI2LD
-IwNDY5ODc5MTAsLTE0MzY3MzEzMzIsLTEyODU0OTQ3NTZdfQ==
+eyJoaXN0b3J5IjpbNTYxNzA2NDMyLDY2ODU4NTYyOCw0NDI3MT
+gwNTcsNzk3MDg4ODY1LDc1MzgyOTU2MCwxOTk3MTE2MDcwLC0y
+MDg1Nzk5OTY3LDQzNTgxMDMyNyw5NzM5MTIzNjIsMTU4NjM2MT
+c1Niw0NTUyNTUxMjAsMTY2MDkyNTYwMiwxMzkxNzUzODIsODQx
+ODEzNTUsLTEyMTU1MDgxMDksMjM2NjUzNDY1LDEyOTY4MDQyNi
+wyMDQ2OTg3OTEwLC0xNDM2NzMxMzMyLC0xMjg1NDk0NzU2XX0=
 
 -->
