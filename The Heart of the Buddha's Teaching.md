@@ -278,13 +278,13 @@ If you are a loyal person, it is because the seed of loyalty is in you. But donâ
 Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 51). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
 ```
 
-Practicing mindfulness helps us identify the seeds that are growing in ourselves.  
+Practicing mindfulness helps us identify the seeds that are growing in ourselves. The capacity to wake up and understand things as they are is in each of us. P51 p3
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTM2NDIzMTgxMiw2Njg1ODU2MjgsNDQyNz
-E4MDU3LDc5NzA4ODg2NSw3NTM4Mjk1NjAsMTk5NzExNjA3MCwt
-MjA4NTc5OTk2Nyw0MzU4MTAzMjcsOTczOTEyMzYyLDE1ODYzNj
-E3NTYsNDU1MjU1MTIwLDE2NjA5MjU2MDIsMTM5MTc1MzgyLDg0
-MTgxMzU1LC0xMjE1NTA4MTA5LDIzNjY1MzQ2NSwxMjk2ODA0Mj
-YsMjA0Njk4NzkxMCwtMTQzNjczMTMzMiwtMTI4NTQ5NDc1Nl19
+eyJoaXN0b3J5IjpbNTQxNjA2NjAzLDEzNjQyMzE4MTIsNjY4NT
+g1NjI4LDQ0MjcxODA1Nyw3OTcwODg4NjUsNzUzODI5NTYwLDE5
+OTcxMTYwNzAsLTIwODU3OTk5NjcsNDM1ODEwMzI3LDk3MzkxMj
+M2MiwxNTg2MzYxNzU2LDQ1NTI1NTEyMCwxNjYwOTI1NjAyLDEz
+OTE3NTM4Miw4NDE4MTM1NSwtMTIxNTUwODEwOSwyMzY2NTM0Nj
+UsMTI5NjgwNDI2LDIwNDY5ODc5MTAsLTE0MzY3MzEzMzJdfQ==
 
 -->
