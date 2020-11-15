@@ -298,13 +298,13 @@ There is always a specific framing of all points of view. The framing enhances c
 
 "Image teaching" uses words and ideas. "Substance teaching" communicates by the way you live.
 
-  
+The idea of right and wrong views is a relative construct. Meaning that any view is actually a wrong view. No view can be purely true, it is always colored and shaped by our perceptions of our vantage. Moving to a new vantage gives us a new view, and we will see things differently and cause us to question our initial view.     
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE1NDg4ODExOTIsLTYyODM1NTMzMiwtNT
-A3MjQxMDY4LC0xNDI3NzM0MTg3LDI3NjYzMzU1OCwxMzY0MjMx
-ODEyLDY2ODU4NTYyOCw0NDI3MTgwNTcsNzk3MDg4ODY1LDc1Mz
-gyOTU2MCwxOTk3MTE2MDcwLC0yMDg1Nzk5OTY3LDQzNTgxMDMy
-Nyw5NzM5MTIzNjIsMTU4NjM2MTc1Niw0NTUyNTUxMjAsMTY2MD
-kyNTYwMiwxMzkxNzUzODIsODQxODEzNTUsLTEyMTU1MDgxMDld
-fQ==
+eyJoaXN0b3J5IjpbOTIxMTQwNTY3LC02MjgzNTUzMzIsLTUwNz
+I0MTA2OCwtMTQyNzczNDE4NywyNzY2MzM1NTgsMTM2NDIzMTgx
+Miw2Njg1ODU2MjgsNDQyNzE4MDU3LDc5NzA4ODg2NSw3NTM4Mj
+k1NjAsMTk5NzExNjA3MCwtMjA4NTc5OTk2Nyw0MzU4MTAzMjcs
+OTczOTEyMzYyLDE1ODYzNjE3NTYsNDU1MjU1MTIwLDE2NjA5Mj
+U2MDIsMTM5MTc1MzgyLDg0MTgxMzU1LC0xMjE1NTA4MTA5XX0=
+
 -->
