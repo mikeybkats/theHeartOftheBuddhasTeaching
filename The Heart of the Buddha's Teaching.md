@@ -296,13 +296,15 @@ To "touch reality you have to turn around." P54
 
 There is always a specific framing of all points of view. The framing enhances certain aspects while diminishing others. 
 
-"Image teaching" uses words and ideas. "Substance teaching" communicates by the way you live.  
-<!--stackedit_data:
-eyJoaXN0b3J5IjpbLTYyODM1NTMzMiwtNTA3MjQxMDY4LC0xND
-I3NzM0MTg3LDI3NjYzMzU1OCwxMzY0MjMxODEyLDY2ODU4NTYy
-OCw0NDI3MTgwNTcsNzk3MDg4ODY1LDc1MzgyOTU2MCwxOTk3MT
-E2MDcwLC0yMDg1Nzk5OTY3LDQzNTgxMDMyNyw5NzM5MTIzNjIs
-MTU4NjM2MTc1Niw0NTUyNTUxMjAsMTY2MDkyNTYwMiwxMzkxNz
-UzODIsODQxODEzNTUsLTEyMTU1MDgxMDksMjM2NjUzNDY1XX0=
+"Image teaching" uses words and ideas. "Substance teaching" communicates by the way you live.
 
+  
+<!--stackedit_data:
+eyJoaXN0b3J5IjpbLTE1NDg4ODExOTIsLTYyODM1NTMzMiwtNT
+A3MjQxMDY4LC0xNDI3NzM0MTg3LDI3NjYzMzU1OCwxMzY0MjMx
+ODEyLDY2ODU4NTYyOCw0NDI3MTgwNTcsNzk3MDg4ODY1LDc1Mz
+gyOTU2MCwxOTk3MTE2MDcwLC0yMDg1Nzk5OTY3LDQzNTgxMDMy
+Nyw5NzM5MTIzNjIsMTU4NjM2MTc1Niw0NTUyNTUxMjAsMTY2MD
+kyNTYwMiwxMzkxNzUzODIsODQxODEzNTUsLTEyMTU1MDgxMDld
+fQ==
 -->
