@@ -263,13 +263,14 @@ Like good organic gardeners, they do not discriminate in favor of the flowers or
 Hanh, Thich Nhat. The Heart of the Buddha's Teaching (pp. 42-43). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
 ```
 
- 
+ ### Chapter 9: Right View
+"Right view is, first of all, a deep understanding of the Four Noble Truths. 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNjY4NTg1NjI4LDQ0MjcxODA1Nyw3OTcwOD
-g4NjUsNzUzODI5NTYwLDE5OTcxMTYwNzAsLTIwODU3OTk5Njcs
-NDM1ODEwMzI3LDk3MzkxMjM2MiwxNTg2MzYxNzU2LDQ1NTI1NT
-EyMCwxNjYwOTI1NjAyLDEzOTE3NTM4Miw4NDE4MTM1NSwtMTIx
-NTUwODEwOSwyMzY2NTM0NjUsMTI5NjgwNDI2LDIwNDY5ODc5MT
-AsLTE0MzY3MzEzMzIsLTEyODU0OTQ3NTYsOTQ4NTIxODYyXX0=
+eyJoaXN0b3J5IjpbLTg5NjAxNjU3MCw2Njg1ODU2MjgsNDQyNz
+E4MDU3LDc5NzA4ODg2NSw3NTM4Mjk1NjAsMTk5NzExNjA3MCwt
+MjA4NTc5OTk2Nyw0MzU4MTAzMjcsOTczOTEyMzYyLDE1ODYzNj
+E3NTYsNDU1MjU1MTIwLDE2NjA5MjU2MDIsMTM5MTc1MzgyLDg0
+MTgxMzU1LC0xMjE1NTA4MTA5LDIzNjY1MzQ2NSwxMjk2ODA0Mj
+YsMjA0Njk4NzkxMCwtMTQzNjczMTMzMiwtMTI4NTQ5NDc1Nl19
 
 -->
