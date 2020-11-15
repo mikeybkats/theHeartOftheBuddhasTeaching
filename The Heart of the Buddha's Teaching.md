@@ -288,9 +288,11 @@ The five mindfulness trainings can help us "selectively touch" the right seeds o
 - True happiness
 - True love
 - Loving speech and deep listening
-- Nourishment and healing  
+- Nourishment and healing
+
+The Bhu  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTUwODc1MDY1NSwtMTQyNzczNDE4NywyNz
+eyJoaXN0b3J5IjpbMTU2MDM2MjM5MSwtMTQyNzczNDE4NywyNz
 Y2MzM1NTgsMTM2NDIzMTgxMiw2Njg1ODU2MjgsNDQyNzE4MDU3
 LDc5NzA4ODg2NSw3NTM4Mjk1NjAsMTk5NzExNjA3MCwtMjA4NT
 c5OTk2Nyw0MzU4MTAzMjcsOTczOTEyMzYyLDE1ODYzNjE3NTYs
