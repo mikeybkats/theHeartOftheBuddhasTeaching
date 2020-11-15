@@ -282,9 +282,9 @@ Practicing mindfulness helps us identify the seeds that are growing in ourselves
 
 The idea of right view is that we can make a judgement about which seeds are wholesome and in turn water those seeds. We can make a judgement about what is right and what is wrong and invest ourselves into those positive areas that will lead us away from turmoil and chaos in the future.
 
-The five mindfulness trainings can help us  
+The five mindfulness trainings can help us "selectively touch" the right seeds of our mind.   
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5NjUwMjk1MjMsMjc2NjMzNTU4LDEzNj
+eyJoaXN0b3J5IjpbLTE0Mjc3MzQxODcsMjc2NjMzNTU4LDEzNj
 QyMzE4MTIsNjY4NTg1NjI4LDQ0MjcxODA1Nyw3OTcwODg4NjUs
 NzUzODI5NTYwLDE5OTcxMTYwNzAsLTIwODU3OTk5NjcsNDM1OD
 EwMzI3LDk3MzkxMjM2MiwxNTg2MzYxNzU2LDQ1NTI1NTEyMCwx
