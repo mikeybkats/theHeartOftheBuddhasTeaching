@@ -290,13 +290,13 @@ The five mindfulness trainings can help us "selectively touch" the right seeds o
 - Loving speech and deep listening
 - Nourishment and healing
 
-The Buddha taught that "where there is perception, there is deception." Meaning that our own mind will fool us into what it wants to believe. Happiness hugely depends on our perceptions. Understand the source of our perceptions.    
+The Buddha taught that "where there is perception, there is deception." Meaning that our own mind will fool us into what it wants to believe. Happiness hugely depends on our perceptions. Understand the source of our perceptions – Know why it is you think what you think.  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTY0MjQ5Nzc5NCwtNTA3MjQxMDY4LC0xND
-I3NzM0MTg3LDI3NjYzMzU1OCwxMzY0MjMxODEyLDY2ODU4NTYy
-OCw0NDI3MTgwNTcsNzk3MDg4ODY1LDc1MzgyOTU2MCwxOTk3MT
-E2MDcwLC0yMDg1Nzk5OTY3LDQzNTgxMDMyNyw5NzM5MTIzNjIs
-MTU4NjM2MTc1Niw0NTUyNTUxMjAsMTY2MDkyNTYwMiwxMzkxNz
-UzODIsODQxODEzNTUsLTEyMTU1MDgxMDksMjM2NjUzNDY1XX0=
+eyJoaXN0b3J5IjpbNjg5MTU3Nzk1LC01MDcyNDEwNjgsLTE0Mj
+c3MzQxODcsMjc2NjMzNTU4LDEzNjQyMzE4MTIsNjY4NTg1NjI4
+LDQ0MjcxODA1Nyw3OTcwODg4NjUsNzUzODI5NTYwLDE5OTcxMT
+YwNzAsLTIwODU3OTk5NjcsNDM1ODEwMzI3LDk3MzkxMjM2Miwx
+NTg2MzYxNzU2LDQ1NTI1NTEyMCwxNjYwOTI1NjAyLDEzOTE3NT
+M4Miw4NDE4MTM1NSwtMTIxNTUwODEwOSwyMzY2NTM0NjVdfQ==
 
 -->
