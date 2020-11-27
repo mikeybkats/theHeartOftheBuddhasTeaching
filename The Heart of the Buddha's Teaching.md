@@ -309,13 +309,13 @@ When Descartes said, “I think, therefore I am,” he meant that we can prove o
 Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 59). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
 ``` 
 
-
+Mindful breathing and focusing on making the mind and body one helps us diminish the wasted energy that is spent on wrong thinking. This wrong thinking presents the ideas and thoughts that are limited or distract us from   
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEwMTk3OTA2NTQsMTc4MTEzNjExOSw2OD
-k1MDcwNywtMTg0MjkzNTg2NSwtNjI4MzU1MzMyLC01MDcyNDEw
-NjgsLTE0Mjc3MzQxODcsMjc2NjMzNTU4LDEzNjQyMzE4MTIsNj
-Y4NTg1NjI4LDQ0MjcxODA1Nyw3OTcwODg4NjUsNzUzODI5NTYw
-LDE5OTcxMTYwNzAsLTIwODU3OTk5NjcsNDM1ODEwMzI3LDk3Mz
-kxMjM2MiwxNTg2MzYxNzU2LDQ1NTI1NTEyMCwxNjYwOTI1NjAy
+eyJoaXN0b3J5IjpbLTUzOTcxNzEwNCwtMTAxOTc5MDY1NCwxNz
+gxMTM2MTE5LDY4OTUwNzA3LC0xODQyOTM1ODY1LC02MjgzNTUz
+MzIsLTUwNzI0MTA2OCwtMTQyNzczNDE4NywyNzY2MzM1NTgsMT
+M2NDIzMTgxMiw2Njg1ODU2MjgsNDQyNzE4MDU3LDc5NzA4ODg2
+NSw3NTM4Mjk1NjAsMTk5NzExNjA3MCwtMjA4NTc5OTk2Nyw0Mz
+U4MTAzMjcsOTczOTEyMzYyLDE1ODYzNjE3NTYsNDU1MjU1MTIw
 XX0=
 -->
