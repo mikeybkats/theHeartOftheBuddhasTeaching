@@ -301,9 +301,11 @@ There is always a specific framing of all points of view. The framing enhances c
 The idea of right and wrong views is a relative construct. Meaning that any view is actually a wrong view. No view can be purely true, it is always colored and shaped by our perceptions of our vantage. Moving to a new vantage gives us a new view, and we will see things differently and cause us to question our initial view. View quality is also a factor. Some views are not of the same quality. In other words, it is possible that some views are more wrong, or more distorted, than others. The quality of our views can be improved. This is why right view is actually now view at all – the absence of all views.    
 
 ## Chapter 10: Right Thinking
-Right view helps us form right thinking. Thich Nat Han makes the point that thinking "is the speech of our mind." It is thinking that will lead us to action, this is why thinking is so important – it is needed for us to make the "Right" – Right Action. Right thinking is our own interpretation of how things are presently. "Wrong thinking" causes us to see in an "upside down" way – *Viparyasa*. Practicing right thinking is not easy. In many cases we are thinking one thing while doing another. P59 
+Right view helps us form right thinking. Thich Nat Han makes the point that thinking "is the speech of our mind." It is thinking that will lead us to action, this is why thinking is so important – it is needed for us to make the "Right" – Right Action. Right thinking is our own interpretation of how things are presently. "Wrong thinking" causes us to see in an "upside down" way – *Viparyasa*. Practicing right thinking is not easy. In many cases we are thinking one thing while doing another. In my personal case I am often thinking about ten things while doing ten things, and rarely is my body in tune with my mind. The mind and body can be made one simply by breathing and focusing on the breath. P59 
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE1OTg5NDA1Nyw2ODk1MDcwNywtMTg0Mj
+eyJoaXN0b3J5IjpbMTc4MTEzNjExOSw2ODk1MDcwNywtMTg0Mj
 kzNTg2NSwtNjI4MzU1MzMyLC01MDcyNDEwNjgsLTE0Mjc3MzQx
 ODcsMjc2NjMzNTU4LDEzNjQyMzE4MTIsNjY4NTg1NjI4LDQ0Mj
 cxODA1Nyw3OTcwODg4NjUsNzUzODI5NTYwLDE5OTcxMTYwNzAs
