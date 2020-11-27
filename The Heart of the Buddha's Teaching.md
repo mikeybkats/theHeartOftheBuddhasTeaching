@@ -301,13 +301,13 @@ There is always a specific framing of all points of view. The framing enhances c
 The idea of right and wrong views is a relative construct. Meaning that any view is actually a wrong view. No view can be purely true, it is always colored and shaped by our perceptions of our vantage. Moving to a new vantage gives us a new view, and we will see things differently and cause us to question our initial view. View quality is also a factor. Some views are not of the same quality. In other words, it is possible that some views are more wrong, or more distorted, than others. The quality of our views can be improved. This is why right view is actually now view at all – the absence of all views.    
 
 ## Chapter 10: Right Thinking
-
+Right view helps us form right thinking. Thich Nat Han makes the point that thinking "is the speech of our mind." It is
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNjg5NTA3MDcsLTE4NDI5MzU4NjUsLTYyOD
-M1NTMzMiwtNTA3MjQxMDY4LC0xNDI3NzM0MTg3LDI3NjYzMzU1
-OCwxMzY0MjMxODEyLDY2ODU4NTYyOCw0NDI3MTgwNTcsNzk3MD
-g4ODY1LDc1MzgyOTU2MCwxOTk3MTE2MDcwLC0yMDg1Nzk5OTY3
-LDQzNTgxMDMyNyw5NzM5MTIzNjIsMTU4NjM2MTc1Niw0NTUyNT
-UxMjAsMTY2MDkyNTYwMiwxMzkxNzUzODIsODQxODEzNTVdfQ==
+eyJoaXN0b3J5IjpbMTg4MjU3MDE2LDY4OTUwNzA3LC0xODQyOT
+M1ODY1LC02MjgzNTUzMzIsLTUwNzI0MTA2OCwtMTQyNzczNDE4
+NywyNzY2MzM1NTgsMTM2NDIzMTgxMiw2Njg1ODU2MjgsNDQyNz
+E4MDU3LDc5NzA4ODg2NSw3NTM4Mjk1NjAsMTk5NzExNjA3MCwt
+MjA4NTc5OTk2Nyw0MzU4MTAzMjcsOTczOTEyMzYyLDE1ODYzNj
+E3NTYsNDU1MjU1MTIwLDE2NjA5MjU2MDIsMTM5MTc1MzgyXX0=
 
 -->
