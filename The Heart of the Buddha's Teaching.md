@@ -301,13 +301,13 @@ There is always a specific framing of all points of view. The framing enhances c
 The idea of right and wrong views is a relative construct. Meaning that any view is actually a wrong view. No view can be purely true, it is always colored and shaped by our perceptions of our vantage. Moving to a new vantage gives us a new view, and we will see things differently and cause us to question our initial view. View quality is also a factor. Some views are not of the same quality. In other words, it is possible that some views are more wrong, or more distorted, than others. The quality of our views can be improved. This is why right view is actually now view at all – the absence of all views.    
 
 ## Chapter 10: Right Thinking
-Right view helps us form right thinking. Thich Nat Han makes the point that thinking "is the speech of our mind." It is thinking that will lead us to action, this is why thinking is so important – it is needed for us to make the "Right" – Right Action. Right thinking is our own interpretation of how things are presently. "Wrong thinking" causes us to 
+Right view helps us form right thinking. Thich Nat Han makes the point that thinking "is the speech of our mind." It is thinking that will lead us to action, this is why thinking is so important – it is needed for us to make the "Right" – Right Action. Right thinking is our own interpretation of how things are presently. "Wrong thinking" causes us to see in an "upside down" way – *Viparyasa*. Practicing right thinking is not easy. In many cases we are thinking one thing while doing another. P59 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5Nzk3Nzg0MzksNjg5NTA3MDcsLTE4ND
-I5MzU4NjUsLTYyODM1NTMzMiwtNTA3MjQxMDY4LC0xNDI3NzM0
-MTg3LDI3NjYzMzU1OCwxMzY0MjMxODEyLDY2ODU4NTYyOCw0ND
-I3MTgwNTcsNzk3MDg4ODY1LDc1MzgyOTU2MCwxOTk3MTE2MDcw
-LC0yMDg1Nzk5OTY3LDQzNTgxMDMyNyw5NzM5MTIzNjIsMTU4Nj
-M2MTc1Niw0NTUyNTUxMjAsMTY2MDkyNTYwMiwxMzkxNzUzODJd
-fQ==
+eyJoaXN0b3J5IjpbLTE1OTg5NDA1Nyw2ODk1MDcwNywtMTg0Mj
+kzNTg2NSwtNjI4MzU1MzMyLC01MDcyNDEwNjgsLTE0Mjc3MzQx
+ODcsMjc2NjMzNTU4LDEzNjQyMzE4MTIsNjY4NTg1NjI4LDQ0Mj
+cxODA1Nyw3OTcwODg4NjUsNzUzODI5NTYwLDE5OTcxMTYwNzAs
+LTIwODU3OTk5NjcsNDM1ODEwMzI3LDk3MzkxMjM2MiwxNTg2Mz
+YxNzU2LDQ1NTI1NTEyMCwxNjYwOTI1NjAyLDEzOTE3NTM4Ml19
+
 -->
