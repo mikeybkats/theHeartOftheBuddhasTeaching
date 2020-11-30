@@ -320,9 +320,9 @@ In the first part of thinking – Initial thought – the mind explores the prim
 
 The second part of thinking – Developing thought – If the thought is about an essay we are writing that is due this afternoon the developing thought is to consider the parameters of the assignment: "Am I doing it correctly? Am I handing it in on time? Should I read it again before handing it in?"
 
-What are 
+**What are the four practices of right thinking?**
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTI1NTcxNzYyNSwtMTU1MTY2NDE2NywtND
+eyJoaXN0b3J5IjpbLTUyNDMxMDg0MiwtMTU1MTY2NDE2NywtND
 cwOTQ4NDAwLC0xMDE5NzkwNjU0LDE3ODExMzYxMTksNjg5NTA3
 MDcsLTE4NDI5MzU4NjUsLTYyODM1NTMzMiwtNTA3MjQxMDY4LC
 0xNDI3NzM0MTg3LDI3NjYzMzU1OCwxMzY0MjMxODEyLDY2ODU4
