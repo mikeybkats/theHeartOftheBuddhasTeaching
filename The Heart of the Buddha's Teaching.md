@@ -325,13 +325,13 @@ The second part of thinking – Developing thought – If the thought is about a
 	- "Are you sure?"
 	- "What are you doing/What am I doing?
 	- "Hello, habit energy!"
-	- Bodichitta – 
+	- Bodichitta – the deep seeded desire we have to cultivate our own improvement and understanding in ourselves.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTI1NzEwNjQ2OCwtMTU1MTY2NDE2NywtND
-cwOTQ4NDAwLC0xMDE5NzkwNjU0LDE3ODExMzYxMTksNjg5NTA3
-MDcsLTE4NDI5MzU4NjUsLTYyODM1NTMzMiwtNTA3MjQxMDY4LC
-0xNDI3NzM0MTg3LDI3NjYzMzU1OCwxMzY0MjMxODEyLDY2ODU4
-NTYyOCw0NDI3MTgwNTcsNzk3MDg4ODY1LDc1MzgyOTU2MCwxOT
-k3MTE2MDcwLC0yMDg1Nzk5OTY3LDQzNTgxMDMyNyw5NzM5MTIz
-NjJdfQ==
+eyJoaXN0b3J5IjpbMTE1Njg5NDA1MSwxMjU3MTA2NDY4LC0xNT
+UxNjY0MTY3LC00NzA5NDg0MDAsLTEwMTk3OTA2NTQsMTc4MTEz
+NjExOSw2ODk1MDcwNywtMTg0MjkzNTg2NSwtNjI4MzU1MzMyLC
+01MDcyNDEwNjgsLTE0Mjc3MzQxODcsMjc2NjMzNTU4LDEzNjQy
+MzE4MTIsNjY4NTg1NjI4LDQ0MjcxODA1Nyw3OTcwODg4NjUsNz
+UzODI5NTYwLDE5OTcxMTYwNzAsLTIwODU3OTk5NjcsNDM1ODEw
+MzI3XX0=
 -->
