@@ -316,13 +316,13 @@ Two parts of thinking:
 	- Initial thought: Vitarka 
 	- Developing thought: Vichara
 
-In the first part of thinking – Initial thought – the mind explores the primary     
+In the first part of thinking – Initial thought – the mind explores the primary most obvious parts of an idea and its baring on the self. If the thought is about an essay we are writing that is due this afternoon the developing thought is to consider the parameters of the assignment: "Am I doing it correctly     
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEwMjkwODIxNDksLTQ3MDk0ODQwMCwtMT
-AxOTc5MDY1NCwxNzgxMTM2MTE5LDY4OTUwNzA3LC0xODQyOTM1
-ODY1LC02MjgzNTUzMzIsLTUwNzI0MTA2OCwtMTQyNzczNDE4Ny
-wyNzY2MzM1NTgsMTM2NDIzMTgxMiw2Njg1ODU2MjgsNDQyNzE4
-MDU3LDc5NzA4ODg2NSw3NTM4Mjk1NjAsMTk5NzExNjA3MCwtMj
-A4NTc5OTk2Nyw0MzU4MTAzMjcsOTczOTEyMzYyLDE1ODYzNjE3
-NTZdfQ==
+eyJoaXN0b3J5IjpbMTUwMzYwMzcxOCwtNDcwOTQ4NDAwLC0xMD
+E5NzkwNjU0LDE3ODExMzYxMTksNjg5NTA3MDcsLTE4NDI5MzU4
+NjUsLTYyODM1NTMzMiwtNTA3MjQxMDY4LC0xNDI3NzM0MTg3LD
+I3NjYzMzU1OCwxMzY0MjMxODEyLDY2ODU4NTYyOCw0NDI3MTgw
+NTcsNzk3MDg4ODY1LDc1MzgyOTU2MCwxOTk3MTE2MDcwLC0yMD
+g1Nzk5OTY3LDQzNTgxMDMyNyw5NzM5MTIzNjIsMTU4NjM2MTc1
+Nl19
 -->
