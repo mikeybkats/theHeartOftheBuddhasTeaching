@@ -313,8 +313,8 @@ Mindful breathing and focusing on making the mind and body one helps us diminish
 
 **Two parts of thinking:**
 
-	- Initial thought: Vitarka 
-	- Developing thought: Vichara
+- Initial thought: Vitarka 
+- Developing thought: Vichara
 
 In the first part of thinking – Initial thought – the mind explores the primary most obvious parts of an idea and its baring on the self. Something like "I have to turn my essay in this afternoon." 
 
@@ -322,14 +322,14 @@ The second part of thinking – Developing thought – If the thought is about a
 
 **What are the four practices of right thinking?**
 
-	- Are you sure? – the more incorrect your perception the more incorrect will be your choices
-	- "What are you doing/What am I doing? – Ask this question to release yourself from the past/future and return to the here and now. Overcome the habit of wanting to complete things quickly. 
-	- "Hello, habit energy!" 
-	- Bodichitta – the deep seeded desire we have to cultivate our own improvement and understanding in ourselves.
+- **Are you sure?** – the more incorrect your perception the more incorrect will be your choices
+- **What are you doing/What am I doing?** – Ask this question to release yourself from the past/future and return to the here and now. Overcome the habit of wanting to complete things quickly. 
+- **Hello, habit energy!**
+- **Bodichitta** – the deep seeded desire we have to cultivate our own improvement and understanding in ourselves.
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTg2MzM0MTg3MSwxOTg1NjUzOTUxLDEyNT
+eyJoaXN0b3J5IjpbLTI3MzUwMzM0OSwxOTg1NjUzOTUxLDEyNT
 cxMDY0NjgsLTE1NTE2NjQxNjcsLTQ3MDk0ODQwMCwtMTAxOTc5
 MDY1NCwxNzgxMTM2MTE5LDY4OTUwNzA3LC0xODQyOTM1ODY1LC
 02MjgzNTUzMzIsLTUwNzI0MTA2OCwtMTQyNzczNDE4NywyNzY2
