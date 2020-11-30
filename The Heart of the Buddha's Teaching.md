@@ -311,7 +311,7 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 59). Potter/Ten Speed/H
 
 Mindful breathing and focusing on making the mind and body one helps us diminish the wasted energy that is spent on wrong thinking. This wrong thinking presents the ideas and thoughts that are limited, lack understand or distract us from what is useful and what leads us to right action. P59 
 
-Two parts of thinking:
+**Two parts of thinking:**
 
 	- Initial thought: Vitarka 
 	- Developing thought: Vichara
@@ -321,8 +321,13 @@ In the first part of thinking – Initial thought – the mind explores the prim
 The second part of thinking – Developing thought – If the thought is about an essay we are writing that is due this afternoon the developing thought is to consider the parameters of the assignment: "Am I doing it correctly? Am I handing it in on time? Should I read it again before handing it in?"
 
 **What are the four practices of right thinking?**
+
+	- "Are you sure?"
+	- "What are you doing/What am I doing?
+	- "Hello, habit energy!"
+	- Bodichitta – 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTUyNDMxMDg0MiwtMTU1MTY2NDE2NywtND
+eyJoaXN0b3J5IjpbMTI1NzEwNjQ2OCwtMTU1MTY2NDE2NywtND
 cwOTQ4NDAwLC0xMDE5NzkwNjU0LDE3ODExMzYxMTksNjg5NTA3
 MDcsLTE4NDI5MzU4NjUsLTYyODM1NTMzMiwtNTA3MjQxMDY4LC
 0xNDI3NzM0MTg3LDI3NjYzMzU1OCwxMzY0MjMxODEyLDY2ODU4
