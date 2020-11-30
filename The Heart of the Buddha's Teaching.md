@@ -325,15 +325,15 @@ The second part of thinking – Developing thought – If the thought is about a
 - **Are you sure?** – the more incorrect your perception the more incorrect will be your choices
 - **What are you doing/What am I doing?** – Ask this question to release yourself from the past/future and return to the here and now. Overcome the habit of wanting to complete things quickly. 
 - **Hello, habit energy!** - Accept the the energies we have, don't feel guilty about them and they will lose power over you as long as you continue to cultivate right thinking.
-- **Bodichitta** – the deep desire we have to cultivate our own improvement and understanding in ourselves.
+- **Bodichitta** – the deep desire we have to cultivate improvement and understanding in ourselves.
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNzk4NzcyMTE1LC0yNzM1MDMzNDksMTk4NT
-Y1Mzk1MSwxMjU3MTA2NDY4LC0xNTUxNjY0MTY3LC00NzA5NDg0
-MDAsLTEwMTk3OTA2NTQsMTc4MTEzNjExOSw2ODk1MDcwNywtMT
-g0MjkzNTg2NSwtNjI4MzU1MzMyLC01MDcyNDEwNjgsLTE0Mjc3
-MzQxODcsMjc2NjMzNTU4LDEzNjQyMzE4MTIsNjY4NTg1NjI4LD
-Q0MjcxODA1Nyw3OTcwODg4NjUsNzUzODI5NTYwLDE5OTcxMTYw
-NzBdfQ==
+eyJoaXN0b3J5IjpbLTEyODk2MjQ2MDMsLTI3MzUwMzM0OSwxOT
+g1NjUzOTUxLDEyNTcxMDY0NjgsLTE1NTE2NjQxNjcsLTQ3MDk0
+ODQwMCwtMTAxOTc5MDY1NCwxNzgxMTM2MTE5LDY4OTUwNzA3LC
+0xODQyOTM1ODY1LC02MjgzNTUzMzIsLTUwNzI0MTA2OCwtMTQy
+NzczNDE4NywyNzY2MzM1NTgsMTM2NDIzMTgxMiw2Njg1ODU2Mj
+gsNDQyNzE4MDU3LDc5NzA4ODg2NSw3NTM4Mjk1NjAsMTk5NzEx
+NjA3MF19
 -->
