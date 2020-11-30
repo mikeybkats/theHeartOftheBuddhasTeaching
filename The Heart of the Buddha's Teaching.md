@@ -322,18 +322,18 @@ The second part of thinking – Developing thought – If the thought is about a
 
 **What are the four practices of right thinking?**
 
-	- "Are you sure?" – the more incorrect your perception the more incorrect will be your choices
-	- "What are you doing/What am I doing? – Ask this question to release yourself from the past/future and return to the here and  . 
-	- "Hello, habit energy!"
+	- Are you sure? – the more incorrect your perception the more incorrect will be your choices
+	- "What are you doing/What am I doing? – Ask this question to release yourself from the past/future and return to the here and now. Overcome the habit of wanting to complete things quickly. 
+	- "Hello, habit energy!" 
 	- Bodichitta – the deep seeded desire we have to cultivate our own improvement and understanding in ourselves.
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE4MDY5MzQyNzAsMTk4NTY1Mzk1MSwxMj
-U3MTA2NDY4LC0xNTUxNjY0MTY3LC00NzA5NDg0MDAsLTEwMTk3
-OTA2NTQsMTc4MTEzNjExOSw2ODk1MDcwNywtMTg0MjkzNTg2NS
-wtNjI4MzU1MzMyLC01MDcyNDEwNjgsLTE0Mjc3MzQxODcsMjc2
-NjMzNTU4LDEzNjQyMzE4MTIsNjY4NTg1NjI4LDQ0MjcxODA1Ny
-w3OTcwODg4NjUsNzUzODI5NTYwLDE5OTcxMTYwNzAsLTIwODU3
-OTk5NjddfQ==
+eyJoaXN0b3J5IjpbMTg2MzM0MTg3MSwxOTg1NjUzOTUxLDEyNT
+cxMDY0NjgsLTE1NTE2NjQxNjcsLTQ3MDk0ODQwMCwtMTAxOTc5
+MDY1NCwxNzgxMTM2MTE5LDY4OTUwNzA3LC0xODQyOTM1ODY1LC
+02MjgzNTUzMzIsLTUwNzI0MTA2OCwtMTQyNzczNDE4NywyNzY2
+MzM1NTgsMTM2NDIzMTgxMiw2Njg1ODU2MjgsNDQyNzE4MDU3LD
+c5NzA4ODg2NSw3NTM4Mjk1NjAsMTk5NzExNjA3MCwtMjA4NTc5
+OTk2N119
 -->
