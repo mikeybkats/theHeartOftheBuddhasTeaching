@@ -314,13 +314,15 @@ Mindful breathing and focusing on making the mind and body one helps us diminish
 Two parts of thinking:
 
 	- Initial thought: Vitarka 
-	- Developing thought: Vichara   
+	- Developing thought: Vichara
+
+In the first part of thinking – Initial thought –    
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTQ3MDk0ODQwMCwtMTAxOTc5MDY1NCwxNz
-gxMTM2MTE5LDY4OTUwNzA3LC0xODQyOTM1ODY1LC02MjgzNTUz
-MzIsLTUwNzI0MTA2OCwtMTQyNzczNDE4NywyNzY2MzM1NTgsMT
-M2NDIzMTgxMiw2Njg1ODU2MjgsNDQyNzE4MDU3LDc5NzA4ODg2
-NSw3NTM4Mjk1NjAsMTk5NzExNjA3MCwtMjA4NTc5OTk2Nyw0Mz
-U4MTAzMjcsOTczOTEyMzYyLDE1ODYzNjE3NTYsNDU1MjU1MTIw
-XX0=
+eyJoaXN0b3J5IjpbLTE5MjY5MjYyOSwtNDcwOTQ4NDAwLC0xMD
+E5NzkwNjU0LDE3ODExMzYxMTksNjg5NTA3MDcsLTE4NDI5MzU4
+NjUsLTYyODM1NTMzMiwtNTA3MjQxMDY4LC0xNDI3NzM0MTg3LD
+I3NjYzMzU1OCwxMzY0MjMxODEyLDY2ODU4NTYyOCw0NDI3MTgw
+NTcsNzk3MDg4ODY1LDc1MzgyOTU2MCwxOTk3MTE2MDcwLC0yMD
+g1Nzk5OTY3LDQzNTgxMDMyNyw5NzM5MTIzNjIsMTU4NjM2MTc1
+Nl19
 -->
