@@ -328,13 +328,13 @@ The second part of thinking – Developing thought – If the thought is about a
 - **Bodichitta** – the deep desire we have to cultivate improvement and understanding in ourselves.
 
 ### Chapter 11: Right Mindfulness
-
+Being mindful means that we can 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTc2ODU5MTMxNywtMTI4OTYyNDYwMywtMj
-czNTAzMzQ5LDE5ODU2NTM5NTEsMTI1NzEwNjQ2OCwtMTU1MTY2
-NDE2NywtNDcwOTQ4NDAwLC0xMDE5NzkwNjU0LDE3ODExMzYxMT
-ksNjg5NTA3MDcsLTE4NDI5MzU4NjUsLTYyODM1NTMzMiwtNTA3
-MjQxMDY4LC0xNDI3NzM0MTg3LDI3NjYzMzU1OCwxMzY0MjMxOD
-EyLDY2ODU4NTYyOCw0NDI3MTgwNTcsNzk3MDg4ODY1LDc1Mzgy
-OTU2MF19
+eyJoaXN0b3J5IjpbLTEyMDc1MTM3MjQsMTc2ODU5MTMxNywtMT
+I4OTYyNDYwMywtMjczNTAzMzQ5LDE5ODU2NTM5NTEsMTI1NzEw
+NjQ2OCwtMTU1MTY2NDE2NywtNDcwOTQ4NDAwLC0xMDE5NzkwNj
+U0LDE3ODExMzYxMTksNjg5NTA3MDcsLTE4NDI5MzU4NjUsLTYy
+ODM1NTMzMiwtNTA3MjQxMDY4LC0xNDI3NzM0MTg3LDI3NjYzMz
+U1OCwxMzY0MjMxODEyLDY2ODU4NTYyOCw0NDI3MTgwNTcsNzk3
+MDg4ODY1XX0=
 -->
