@@ -327,13 +327,14 @@ The second part of thinking – Developing thought – If the thought is about a
 - **Hello, habit energy!** - Accept the the energies we have, don't feel guilty about them and they will lose power over you as long as you continue to cultivate right thinking.
 - **Bodichitta** – the deep desire we have to cultivate improvement and understanding in ourselves.
 
+### Chapter 11: Right Mindfulness
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyODk2MjQ2MDMsLTI3MzUwMzM0OSwxOT
-g1NjUzOTUxLDEyNTcxMDY0NjgsLTE1NTE2NjQxNjcsLTQ3MDk0
-ODQwMCwtMTAxOTc5MDY1NCwxNzgxMTM2MTE5LDY4OTUwNzA3LC
-0xODQyOTM1ODY1LC02MjgzNTUzMzIsLTUwNzI0MTA2OCwtMTQy
-NzczNDE4NywyNzY2MzM1NTgsMTM2NDIzMTgxMiw2Njg1ODU2Mj
-gsNDQyNzE4MDU3LDc5NzA4ODg2NSw3NTM4Mjk1NjAsMTk5NzEx
-NjA3MF19
+eyJoaXN0b3J5IjpbMTc2ODU5MTMxNywtMTI4OTYyNDYwMywtMj
+czNTAzMzQ5LDE5ODU2NTM5NTEsMTI1NzEwNjQ2OCwtMTU1MTY2
+NDE2NywtNDcwOTQ4NDAwLC0xMDE5NzkwNjU0LDE3ODExMzYxMT
+ksNjg5NTA3MDcsLTE4NDI5MzU4NjUsLTYyODM1NTMzMiwtNTA3
+MjQxMDY4LC0xNDI3NzM0MTg3LDI3NjYzMzU1OCwxMzY0MjMxOD
+EyLDY2ODU4NTYyOCw0NDI3MTgwNTcsNzk3MDg4ODY1LDc1Mzgy
+OTU2MF19
 -->
