@@ -328,13 +328,17 @@ The second part of thinking – Developing thought – If the thought is about a
 - **Bodichitta** – the deep desire we have to cultivate improvement and understanding in ourselves.
 
 ### Chapter 11: Right Mindfulness
-Being mindful means that we can stop
+Being mindful means that we can stop ourselves from letting our habit energies take over. Inside of you there should be a little person that reminds you when your focus is dwindling and your habit energies are taking over.
+
+Right mindfulness is the force that brings you back to the present moment.
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTc2NzM2MTk4NiwtMTIwNzUxMzcyNCwxNz
-Y4NTkxMzE3LC0xMjg5NjI0NjAzLC0yNzM1MDMzNDksMTk4NTY1
-Mzk1MSwxMjU3MTA2NDY4LC0xNTUxNjY0MTY3LC00NzA5NDg0MD
-AsLTEwMTk3OTA2NTQsMTc4MTEzNjExOSw2ODk1MDcwNywtMTg0
-MjkzNTg2NSwtNjI4MzU1MzMyLC01MDcyNDEwNjgsLTE0Mjc3Mz
-QxODcsMjc2NjMzNTU4LDEzNjQyMzE4MTIsNjY4NTg1NjI4LDQ0
-MjcxODA1N119
+eyJoaXN0b3J5IjpbNzcxODI1OTYsLTEyMDc1MTM3MjQsMTc2OD
+U5MTMxNywtMTI4OTYyNDYwMywtMjczNTAzMzQ5LDE5ODU2NTM5
+NTEsMTI1NzEwNjQ2OCwtMTU1MTY2NDE2NywtNDcwOTQ4NDAwLC
+0xMDE5NzkwNjU0LDE3ODExMzYxMTksNjg5NTA3MDcsLTE4NDI5
+MzU4NjUsLTYyODM1NTMzMiwtNTA3MjQxMDY4LC0xNDI3NzM0MT
+g3LDI3NjYzMzU1OCwxMzY0MjMxODEyLDY2ODU4NTYyOCw0NDI3
+MTgwNTddfQ==
 -->
