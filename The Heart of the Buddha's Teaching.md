@@ -332,13 +332,13 @@ Being mindful means that we can stop ourselves from letting our habit energies t
 
 Right mindfulness is the force that brings you back to the present moment.
 
-No matter where you are, what you are doing, something has got your attention. You could be thinking deliberately about something, or your mind could be humming along, riding the horse of your habit energies.
+No matter where you are, what you are doing, something has got your attention. You could be thinking deliberately about something, or your mind could be humming along, riding the horse of your habit energies. The way we think and what we think on can be *appropriate* or 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTUyOTAxNDU3OCw3NzE4MjU5NiwtMTIwNz
-UxMzcyNCwxNzY4NTkxMzE3LC0xMjg5NjI0NjAzLC0yNzM1MDMz
-NDksMTk4NTY1Mzk1MSwxMjU3MTA2NDY4LC0xNTUxNjY0MTY3LC
-00NzA5NDg0MDAsLTEwMTk3OTA2NTQsMTc4MTEzNjExOSw2ODk1
-MDcwNywtMTg0MjkzNTg2NSwtNjI4MzU1MzMyLC01MDcyNDEwNj
-gsLTE0Mjc3MzQxODcsMjc2NjMzNTU4LDEzNjQyMzE4MTIsNjY4
-NTg1NjI4XX0=
+eyJoaXN0b3J5IjpbMzEyMzc5OTU1LDE1MjkwMTQ1NzgsNzcxOD
+I1OTYsLTEyMDc1MTM3MjQsMTc2ODU5MTMxNywtMTI4OTYyNDYw
+MywtMjczNTAzMzQ5LDE5ODU2NTM5NTEsMTI1NzEwNjQ2OCwtMT
+U1MTY2NDE2NywtNDcwOTQ4NDAwLC0xMDE5NzkwNjU0LDE3ODEx
+MzYxMTksNjg5NTA3MDcsLTE4NDI5MzU4NjUsLTYyODM1NTMzMi
+wtNTA3MjQxMDY4LC0xNDI3NzM0MTg3LDI3NjYzMzU1OCwxMzY0
+MjMxODEyXX0=
 -->
