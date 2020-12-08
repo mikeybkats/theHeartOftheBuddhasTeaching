@@ -340,11 +340,11 @@ There are seven miracles of right mindfulness:
 2. **Making those things around us present.** The things around us that are likely to be ignored or not given a second thought come into focus more clearly – the clouds, the sky, or as Thich Nhat Hanh says – "the smile of our child."
 3. **Nourishing the object of our attention.** Being able to look into the eyes of your friend or loved one and try to get to the heart of who they are.
 4. **Relieve the others suffering.** Being truly present means getting to know the troubles of your loved ones. And, helping them cope. When you are on the receiving end this is a great blessing.
-5. **Looking Deeply.**
-6. **Understanding.** Seeing things
-7. **Transformation.** Healing 
+5. **Looking Deeply.** Shining light on the places you did not know existed.
+6. **Understanding.** Seeing and accepting things you did not see before 
+7. **Transformation.** Healing, shifting and growing.  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTMxNDM5NDgyMSwxNDU3MjgxNzc1LDMxMj
+eyJoaXN0b3J5IjpbMjEwOTIyMDE0MSwxNDU3MjgxNzc1LDMxMj
 M3OTk1NSwxNTI5MDE0NTc4LDc3MTgyNTk2LC0xMjA3NTEzNzI0
 LDE3Njg1OTEzMTcsLTEyODk2MjQ2MDMsLTI3MzUwMzM0OSwxOT
 g1NjUzOTUxLDEyNTcxMDY0NjgsLTE1NTE2NjQxNjcsLTQ3MDk0
