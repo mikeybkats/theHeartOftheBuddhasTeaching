@@ -336,13 +336,14 @@ No matter where you are, what you are doing, something has got your attention. Y
 
 There are seven miracles of right mindfulness:
 
-1. Being present, and being able to  
+1. Being present, and being able to touch deeply the things that are right in front of us. The things likely to be ignored when thinking inappropriately.
+2. Making those things around us present. The things around us that  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE1MDM4NjU2ODUsMzEyMzc5OTU1LDE1Mj
-kwMTQ1NzgsNzcxODI1OTYsLTEyMDc1MTM3MjQsMTc2ODU5MTMx
-NywtMTI4OTYyNDYwMywtMjczNTAzMzQ5LDE5ODU2NTM5NTEsMT
-I1NzEwNjQ2OCwtMTU1MTY2NDE2NywtNDcwOTQ4NDAwLC0xMDE5
-NzkwNjU0LDE3ODExMzYxMTksNjg5NTA3MDcsLTE4NDI5MzU4Nj
-UsLTYyODM1NTMzMiwtNTA3MjQxMDY4LC0xNDI3NzM0MTg3LDI3
-NjYzMzU1OF19
+eyJoaXN0b3J5IjpbLTY2NzU4NTYyNSwzMTIzNzk5NTUsMTUyOT
+AxNDU3OCw3NzE4MjU5NiwtMTIwNzUxMzcyNCwxNzY4NTkxMzE3
+LC0xMjg5NjI0NjAzLC0yNzM1MDMzNDksMTk4NTY1Mzk1MSwxMj
+U3MTA2NDY4LC0xNTUxNjY0MTY3LC00NzA5NDg0MDAsLTEwMTk3
+OTA2NTQsMTc4MTEzNjExOSw2ODk1MDcwNywtMTg0MjkzNTg2NS
+wtNjI4MzU1MzMyLC01MDcyNDEwNjgsLTE0Mjc3MzQxODcsMjc2
+NjMzNTU4XX0=
 -->
