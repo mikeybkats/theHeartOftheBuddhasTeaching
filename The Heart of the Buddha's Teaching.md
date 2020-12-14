@@ -343,12 +343,14 @@ No matter where you are, what you are doing, something has got your attention. Y
 5. **Looking Deeply.** Shining light on the places you did not know existed.
 6. **Understanding.** Seeing and accepting things you did not see before 
 7. **Transformation.** Healing, shifting and growing.  
+
+Mindfulness is 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjEzMTA4OTQ2NywyMTA5MjIwMTQxLDE0NT
-cyODE3NzUsMzEyMzc5OTU1LDE1MjkwMTQ1NzgsNzcxODI1OTYs
-LTEyMDc1MTM3MjQsMTc2ODU5MTMxNywtMTI4OTYyNDYwMywtMj
-czNTAzMzQ5LDE5ODU2NTM5NTEsMTI1NzEwNjQ2OCwtMTU1MTY2
-NDE2NywtNDcwOTQ4NDAwLC0xMDE5NzkwNjU0LDE3ODExMzYxMT
-ksNjg5NTA3MDcsLTE4NDI5MzU4NjUsLTYyODM1NTMzMiwtNTA3
-MjQxMDY4XX0=
+eyJoaXN0b3J5IjpbNjA3NTk1NDI5LDIxMzEwODk0NjcsMjEwOT
+IyMDE0MSwxNDU3MjgxNzc1LDMxMjM3OTk1NSwxNTI5MDE0NTc4
+LDc3MTgyNTk2LC0xMjA3NTEzNzI0LDE3Njg1OTEzMTcsLTEyOD
+k2MjQ2MDMsLTI3MzUwMzM0OSwxOTg1NjUzOTUxLDEyNTcxMDY0
+NjgsLTE1NTE2NjQxNjcsLTQ3MDk0ODQwMCwtMTAxOTc5MDY1NC
+wxNzgxMTM2MTE5LDY4OTUwNzA3LC0xODQyOTM1ODY1LC02Mjgz
+NTUzMzJdfQ==
 -->
