@@ -334,7 +334,7 @@ Right mindfulness is the force that brings you back to the present moment.
 
 No matter where you are, what you are doing, something has got your attention. You could be thinking deliberately about something, or your mind could be humming along, riding the horse of your habit energies. The way we think and what we think on can be *appropriate* or *inappropriate*. Things that take distract us or take us away from the here and now can be called inappropriate. If it happens, when it happens, don't judge. Right mindfulness is all about not judging. Don't react. Respond. Move on, let go and choose what is appropriate. This is part of practicing.
 
-There are seven miracles of right mindfulness:
+#### There are seven miracles of right mindfulness:
 
 1. **Being present**, and being able to touch deeply the things that are right in front of us. The things likely to not be considered when thinking inappropriately.
 2. **Making those things around us present.** The things around us that are likely to be ignored or not given a second thought come into focus more clearly – the clouds, the sky, or as Thich Nhat Hanh says – "the smile of our child."
@@ -344,11 +344,11 @@ There are seven miracles of right mindfulness:
 6. **Understanding.** Seeing and accepting things you did not see before 
 7. **Transformation.** Healing, shifting and growing.  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjEwOTIyMDE0MSwxNDU3MjgxNzc1LDMxMj
-M3OTk1NSwxNTI5MDE0NTc4LDc3MTgyNTk2LC0xMjA3NTEzNzI0
-LDE3Njg1OTEzMTcsLTEyODk2MjQ2MDMsLTI3MzUwMzM0OSwxOT
-g1NjUzOTUxLDEyNTcxMDY0NjgsLTE1NTE2NjQxNjcsLTQ3MDk0
-ODQwMCwtMTAxOTc5MDY1NCwxNzgxMTM2MTE5LDY4OTUwNzA3LC
-0xODQyOTM1ODY1LC02MjgzNTUzMzIsLTUwNzI0MTA2OCwtMTQy
-NzczNDE4N119
+eyJoaXN0b3J5IjpbMjEzMTA4OTQ2NywyMTA5MjIwMTQxLDE0NT
+cyODE3NzUsMzEyMzc5OTU1LDE1MjkwMTQ1NzgsNzcxODI1OTYs
+LTEyMDc1MTM3MjQsMTc2ODU5MTMxNywtMTI4OTYyNDYwMywtMj
+czNTAzMzQ5LDE5ODU2NTM5NTEsMTI1NzEwNjQ2OCwtMTU1MTY2
+NDE2NywtNDcwOTQ4NDAwLC0xMDE5NzkwNjU0LDE3ODExMzYxMT
+ksNjg5NTA3MDcsLTE4NDI5MzU4NjUsLTYyODM1NTMzMiwtNTA3
+MjQxMDY4XX0=
 -->
