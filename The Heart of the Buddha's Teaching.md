@@ -344,13 +344,13 @@ No matter where you are, what you are doing, something has got your attention. Y
 6. **Understanding.** Seeing and accepting things you did not see before 
 7. **Transformation.** Healing, shifting and growing.  
 
-Mindfulness 
+Mindfulness can be cultivated through practice. It can come naturally, but it can also atrophy like the muscles in our bodies. Mindfulness practice requires the attention on our bodies, our feelings, our 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTc5NTg2ODM5MSwyMTMxMDg5NDY3LDIxMD
-kyMjAxNDEsMTQ1NzI4MTc3NSwzMTIzNzk5NTUsMTUyOTAxNDU3
-OCw3NzE4MjU5NiwtMTIwNzUxMzcyNCwxNzY4NTkxMzE3LC0xMj
-g5NjI0NjAzLC0yNzM1MDMzNDksMTk4NTY1Mzk1MSwxMjU3MTA2
-NDY4LC0xNTUxNjY0MTY3LC00NzA5NDg0MDAsLTEwMTk3OTA2NT
-QsMTc4MTEzNjExOSw2ODk1MDcwNywtMTg0MjkzNTg2NSwtNjI4
-MzU1MzMyXX0=
+eyJoaXN0b3J5IjpbMzc3OTYwODcsMjEzMTA4OTQ2NywyMTA5Mj
+IwMTQxLDE0NTcyODE3NzUsMzEyMzc5OTU1LDE1MjkwMTQ1Nzgs
+NzcxODI1OTYsLTEyMDc1MTM3MjQsMTc2ODU5MTMxNywtMTI4OT
+YyNDYwMywtMjczNTAzMzQ5LDE5ODU2NTM5NTEsMTI1NzEwNjQ2
+OCwtMTU1MTY2NDE2NywtNDcwOTQ4NDAwLC0xMDE5NzkwNjU0LD
+E3ODExMzYxMTksNjg5NTA3MDcsLTE4NDI5MzU4NjUsLTYyODM1
+NTMzMl19
 -->
