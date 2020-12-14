@@ -344,13 +344,13 @@ No matter where you are, what you are doing, something has got your attention. Y
 6. **Understanding.** Seeing and accepting things you did not see before 
 7. **Transformation.** Healing, shifting and growing.  
 
-Mindfulness is 
+Mindfulness 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNjA3NTk1NDI5LDIxMzEwODk0NjcsMjEwOT
-IyMDE0MSwxNDU3MjgxNzc1LDMxMjM3OTk1NSwxNTI5MDE0NTc4
-LDc3MTgyNTk2LC0xMjA3NTEzNzI0LDE3Njg1OTEzMTcsLTEyOD
-k2MjQ2MDMsLTI3MzUwMzM0OSwxOTg1NjUzOTUxLDEyNTcxMDY0
-NjgsLTE1NTE2NjQxNjcsLTQ3MDk0ODQwMCwtMTAxOTc5MDY1NC
-wxNzgxMTM2MTE5LDY4OTUwNzA3LC0xODQyOTM1ODY1LC02Mjgz
-NTUzMzJdfQ==
+eyJoaXN0b3J5IjpbLTc5NTg2ODM5MSwyMTMxMDg5NDY3LDIxMD
+kyMjAxNDEsMTQ1NzI4MTc3NSwzMTIzNzk5NTUsMTUyOTAxNDU3
+OCw3NzE4MjU5NiwtMTIwNzUxMzcyNCwxNzY4NTkxMzE3LC0xMj
+g5NjI0NjAzLC0yNzM1MDMzNDksMTk4NTY1Mzk1MSwxMjU3MTA2
+NDY4LC0xNTUxNjY0MTY3LC00NzA5NDg0MDAsLTEwMTk3OTA2NT
+QsMTc4MTEzNjExOSw2ODk1MDcwNywtMTg0MjkzNTg2NSwtNjI4
+MzU1MzMyXX0=
 -->
