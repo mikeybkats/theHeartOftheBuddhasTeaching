@@ -346,15 +346,15 @@ No matter where you are, what you are doing, something has got your attention. Y
 
 Mindfulness can be cultivated through practice. It can come naturally, but it can also atrophy the same as a muscle. Mindfulness practice requires the attention on our *bodies*, our *feelings*, our *mind*, and the objects of our mind. 
 
-The first way of practicing mindfulness in the body is easy. When you're walking, resting, moving your body in whatever way, as long as you are aware of what you are doing you are practicing. The next way is to do what I call a "body scan." When a meditation is practiced start to think about the body from the top down or body up. Scan the ends of your toes. How do they feel, what is the sensation in them. Then move to the bottoms of the feet. Do they feel warm? Cold? Ankles? Are they loose? Stiff? Tired. Then work you way up the body in this way doing a scan. Observe and note each part of the body. Start top down or bottom up. Either way is good. The last way to practice mindfulness in the body is a bit more 
+The first way of practicing mindfulness in the body is easy. When you're walking, resting, moving your body in whatever way, as long as you are aware of what you are doing you are practicing. The next way is to do what I call a "body scan." When a meditation is practiced start to think about the body from the top down or body up. Scan the ends of your toes. How do they feel, what is the sensation in them. Then move to the bottoms of the feet. Do they feel warm? Cold? Ankles? Are they loose? Stiff? Tired. Then work you way up the body in this way doing a scan. Observe and note each part of the body. Start top down or bottom up. Either way is good. The last way to practice mindfulness in the body is a bit more naturalistic I may even say that it is a bit 80s sci-fi. 
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTM4NzMzNzQzMSwtNjQxNzExNTc4LDIxMz
-EwODk0NjcsMjEwOTIyMDE0MSwxNDU3MjgxNzc1LDMxMjM3OTk1
-NSwxNTI5MDE0NTc4LDc3MTgyNTk2LC0xMjA3NTEzNzI0LDE3Nj
-g1OTEzMTcsLTEyODk2MjQ2MDMsLTI3MzUwMzM0OSwxOTg1NjUz
-OTUxLDEyNTcxMDY0NjgsLTE1NTE2NjQxNjcsLTQ3MDk0ODQwMC
-wtMTAxOTc5MDY1NCwxNzgxMTM2MTE5LDY4OTUwNzA3LC0xODQy
-OTM1ODY1XX0=
+eyJoaXN0b3J5IjpbMTgzMzc5Mjk0MSwtMzg3MzM3NDMxLC02ND
+E3MTE1NzgsMjEzMTA4OTQ2NywyMTA5MjIwMTQxLDE0NTcyODE3
+NzUsMzEyMzc5OTU1LDE1MjkwMTQ1NzgsNzcxODI1OTYsLTEyMD
+c1MTM3MjQsMTc2ODU5MTMxNywtMTI4OTYyNDYwMywtMjczNTAz
+MzQ5LDE5ODU2NTM5NTEsMTI1NzEwNjQ2OCwtMTU1MTY2NDE2Ny
+wtNDcwOTQ4NDAwLC0xMDE5NzkwNjU0LDE3ODExMzYxMTksNjg5
+NTA3MDddfQ==
 -->
