@@ -353,15 +353,15 @@ The third method the Buddha offered for practicing mindfulness of the body in th
 Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 69). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
 ```
 
-By realizing our bodies contain all of the elements of nature it helps us to ground ourselves in a reality where we are part of these natural forces inside and out. We are no longer just a mind encapsulated b	y a body with needs and desires. "We are everywhere." P69
+By realizing our bodies contain all of the elements of nature it helps us to ground ourselves in a reality where we are part of these natural forces inside and out. We are no longer just a mind encapsulated by a body with needs and desires. "We are everywhere." P69
 
   
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIwNzI1MDk1MzgsLTQ0MjUwNTcyMiwtMz
-g3MzM3NDMxLC02NDE3MTE1NzgsMjEzMTA4OTQ2NywyMTA5MjIw
-MTQxLDE0NTcyODE3NzUsMzEyMzc5OTU1LDE1MjkwMTQ1NzgsNz
-cxODI1OTYsLTEyMDc1MTM3MjQsMTc2ODU5MTMxNywtMTI4OTYy
-NDYwMywtMjczNTAzMzQ5LDE5ODU2NTM5NTEsMTI1NzEwNjQ2OC
-wtMTU1MTY2NDE2NywtNDcwOTQ4NDAwLC0xMDE5NzkwNjU0LDE3
-ODExMzYxMTldfQ==
+eyJoaXN0b3J5IjpbLTQ0MjUwNTcyMiwtNDQyNTA1NzIyLC0zOD
+czMzc0MzEsLTY0MTcxMTU3OCwyMTMxMDg5NDY3LDIxMDkyMjAx
+NDEsMTQ1NzI4MTc3NSwzMTIzNzk5NTUsMTUyOTAxNDU3OCw3Nz
+E4MjU5NiwtMTIwNzUxMzcyNCwxNzY4NTkxMzE3LC0xMjg5NjI0
+NjAzLC0yNzM1MDMzNDksMTk4NTY1Mzk1MSwxMjU3MTA2NDY4LC
+0xNTUxNjY0MTY3LC00NzA5NDg0MDAsLTEwMTk3OTA2NTQsMTc4
+MTEzNjExOV19
 -->
