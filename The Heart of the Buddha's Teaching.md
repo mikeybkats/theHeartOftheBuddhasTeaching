@@ -346,15 +346,15 @@ No matter where you are, what you are doing, something has got your attention. Y
 
 Mindfulness can be cultivated through practice. It can come naturally, but it can also atrophy the same as a muscle. Mindfulness practice requires the attention on our *bodies*, our *feelings*, our *mind*, and the objects of our mind. 
 
-The first way of practicing mindfulness in the body is easy. When you're walking, resting, moving your body in whatever way, as long as you are aware of what you are doing you are practicing.  
+The first way of practicing mindfulness in the body is easy. When you're walking, resting, moving your body in whatever way, as long as you are aware of what you are doing you are practicing. The next way is to do what I call a "body scan." When a meditation is practiced start to think about the body from the top down or body up. Scan th
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTY4NzY3OTQxNywtNjQxNzExNTc4LDIxMz
-EwODk0NjcsMjEwOTIyMDE0MSwxNDU3MjgxNzc1LDMxMjM3OTk1
-NSwxNTI5MDE0NTc4LDc3MTgyNTk2LC0xMjA3NTEzNzI0LDE3Nj
-g1OTEzMTcsLTEyODk2MjQ2MDMsLTI3MzUwMzM0OSwxOTg1NjUz
-OTUxLDEyNTcxMDY0NjgsLTE1NTE2NjQxNjcsLTQ3MDk0ODQwMC
-wtMTAxOTc5MDY1NCwxNzgxMTM2MTE5LDY4OTUwNzA3LC0xODQy
-OTM1ODY1XX0=
+eyJoaXN0b3J5IjpbLTEzNDQ4MzczMDUsLTY0MTcxMTU3OCwyMT
+MxMDg5NDY3LDIxMDkyMjAxNDEsMTQ1NzI4MTc3NSwzMTIzNzk5
+NTUsMTUyOTAxNDU3OCw3NzE4MjU5NiwtMTIwNzUxMzcyNCwxNz
+Y4NTkxMzE3LC0xMjg5NjI0NjAzLC0yNzM1MDMzNDksMTk4NTY1
+Mzk1MSwxMjU3MTA2NDY4LC0xNTUxNjY0MTY3LC00NzA5NDg0MD
+AsLTEwMTk3OTA2NTQsMTc4MTEzNjExOSw2ODk1MDcwNywtMTg0
+MjkzNTg2NV19
 -->
