@@ -353,13 +353,13 @@ The third method the Buddha offered for practicing mindfulness of the body in th
 Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 69). Potter/Ten Speed/Harmony/Rodale. Kindle Edition. 
 ```
 
-By realizing our bodies are a part of the natural forces of reality it helps us to ground ourselves in a reality that is  
+By realizing our bodies are a part of the natural forces of reality it helps us to ground ourselves in a reality where we are part of these natural forces inside and out. We are no longer just a mind encapsulated by a body with needs and desires. "We   
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNTE0NTEwMjEzLC0zODczMzc0MzEsLTY0MT
-cxMTU3OCwyMTMxMDg5NDY3LDIxMDkyMjAxNDEsMTQ1NzI4MTc3
-NSwzMTIzNzk5NTUsMTUyOTAxNDU3OCw3NzE4MjU5NiwtMTIwNz
-UxMzcyNCwxNzY4NTkxMzE3LC0xMjg5NjI0NjAzLC0yNzM1MDMz
-NDksMTk4NTY1Mzk1MSwxMjU3MTA2NDY4LC0xNTUxNjY0MTY3LC
-00NzA5NDg0MDAsLTEwMTk3OTA2NTQsMTc4MTEzNjExOSw2ODk1
-MDcwN119
+eyJoaXN0b3J5IjpbMTI3MDkwMTU2MSwtMzg3MzM3NDMxLC02ND
+E3MTE1NzgsMjEzMTA4OTQ2NywyMTA5MjIwMTQxLDE0NTcyODE3
+NzUsMzEyMzc5OTU1LDE1MjkwMTQ1NzgsNzcxODI1OTYsLTEyMD
+c1MTM3MjQsMTc2ODU5MTMxNywtMTI4OTYyNDYwMywtMjczNTAz
+MzQ5LDE5ODU2NTM5NTEsMTI1NzEwNjQ2OCwtMTU1MTY2NDE2Ny
+wtNDcwOTQ4NDAwLC0xMDE5NzkwNjU0LDE3ODExMzYxMTksNjg5
+NTA3MDddfQ==
 -->
