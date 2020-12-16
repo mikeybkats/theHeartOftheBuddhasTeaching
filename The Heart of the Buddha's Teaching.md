@@ -362,15 +362,16 @@ By realizing our bodies contain all of the elements of nature it helps us to gro
 So this third way is a bit more complex, but also more wholistic, because it removes the self from the body and into the landscape of our universe. In this way we see the elements earth, wind, fire and water inside us and relate these elements to their effect on our body. 
 
 Wind – breath in and out
-Fire  
+Fire - anger is a fire inside of us that we must be mindful of
+ 
 
   
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNDYzMTkzNTk1LC0xNDYyMjIyMDAwLC00ND
-I1MDU3MjIsLTQ0MjUwNTcyMiwtMzg3MzM3NDMxLC02NDE3MTE1
-NzgsMjEzMTA4OTQ2NywyMTA5MjIwMTQxLDE0NTcyODE3NzUsMz
-EyMzc5OTU1LDE1MjkwMTQ1NzgsNzcxODI1OTYsLTEyMDc1MTM3
-MjQsMTc2ODU5MTMxNywtMTI4OTYyNDYwMywtMjczNTAzMzQ5LD
-E5ODU2NTM5NTEsMTI1NzEwNjQ2OCwtMTU1MTY2NDE2NywtNDcw
-OTQ4NDAwXX0=
+eyJoaXN0b3J5IjpbLTEyODQ0NTUyNiwtMTQ2MjIyMjAwMCwtND
+QyNTA1NzIyLC00NDI1MDU3MjIsLTM4NzMzNzQzMSwtNjQxNzEx
+NTc4LDIxMzEwODk0NjcsMjEwOTIyMDE0MSwxNDU3MjgxNzc1LD
+MxMjM3OTk1NSwxNTI5MDE0NTc4LDc3MTgyNTk2LC0xMjA3NTEz
+NzI0LDE3Njg1OTEzMTcsLTEyODk2MjQ2MDMsLTI3MzUwMzM0OS
+wxOTg1NjUzOTUxLDEyNTcxMDY0NjgsLTE1NTE2NjQxNjcsLTQ3
+MDk0ODQwMF19
 -->
