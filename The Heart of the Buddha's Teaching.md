@@ -359,15 +359,15 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 69). Potter/Ten Speed/H
 
 By realizing our bodies contain all of the elements of nature it helps us to ground ourselves in a reality where we are part of these natural forces inside and out. We are no longer just a mind encapsulated by a body with needs and desires. "We are everywhere." P69
 
-So this third way is a bit more complex, but also more wholistic, because it removes the self from the body and into the 
+So this third way is a bit more complex, but also more wholistic, because it removes the self from the body and into the landscape of our universe.
 
   
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTU2OTc2OTgyMywtNDQyNTA1NzIyLC00ND
-I1MDU3MjIsLTM4NzMzNzQzMSwtNjQxNzExNTc4LDIxMzEwODk0
-NjcsMjEwOTIyMDE0MSwxNDU3MjgxNzc1LDMxMjM3OTk1NSwxNT
-I5MDE0NTc4LDc3MTgyNTk2LC0xMjA3NTEzNzI0LDE3Njg1OTEz
-MTcsLTEyODk2MjQ2MDMsLTI3MzUwMzM0OSwxOTg1NjUzOTUxLD
-EyNTcxMDY0NjgsLTE1NTE2NjQxNjcsLTQ3MDk0ODQwMCwtMTAx
-OTc5MDY1NF19
+eyJoaXN0b3J5IjpbLTE0NjIyMjIwMDAsLTQ0MjUwNTcyMiwtND
+QyNTA1NzIyLC0zODczMzc0MzEsLTY0MTcxMTU3OCwyMTMxMDg5
+NDY3LDIxMDkyMjAxNDEsMTQ1NzI4MTc3NSwzMTIzNzk5NTUsMT
+UyOTAxNDU3OCw3NzE4MjU5NiwtMTIwNzUxMzcyNCwxNzY4NTkx
+MzE3LC0xMjg5NjI0NjAzLC0yNzM1MDMzNDksMTk4NTY1Mzk1MS
+wxMjU3MTA2NDY4LC0xNTUxNjY0MTY3LC00NzA5NDg0MDAsLTEw
+MTk3OTA2NTRdfQ==
 -->
