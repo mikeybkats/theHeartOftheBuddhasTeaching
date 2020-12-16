@@ -359,15 +359,18 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 69). Potter/Ten Speed/H
 
 By realizing our bodies contain all of the elements of nature it helps us to ground ourselves in a reality where we are part of these natural forces inside and out. We are no longer just a mind encapsulated by a body with needs and desires. "We are everywhere." P69
 
-So this third way is a bit more complex, but also more wholistic, because it removes the self from the body and into the landscape of our universe.
+So this third way is a bit more complex, but also more wholistic, because it removes the self from the body and into the landscape of our universe. In this way we see the elements earth, wind, fire and water inside us and relate these elements to their effect on our body. 
+
+Wind – breath in and out
+Fire  
 
   
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE0NjIyMjIwMDAsLTQ0MjUwNTcyMiwtND
-QyNTA1NzIyLC0zODczMzc0MzEsLTY0MTcxMTU3OCwyMTMxMDg5
-NDY3LDIxMDkyMjAxNDEsMTQ1NzI4MTc3NSwzMTIzNzk5NTUsMT
-UyOTAxNDU3OCw3NzE4MjU5NiwtMTIwNzUxMzcyNCwxNzY4NTkx
-MzE3LC0xMjg5NjI0NjAzLC0yNzM1MDMzNDksMTk4NTY1Mzk1MS
-wxMjU3MTA2NDY4LC0xNTUxNjY0MTY3LC00NzA5NDg0MDAsLTEw
-MTk3OTA2NTRdfQ==
+eyJoaXN0b3J5IjpbNDYzMTkzNTk1LC0xNDYyMjIyMDAwLC00ND
+I1MDU3MjIsLTQ0MjUwNTcyMiwtMzg3MzM3NDMxLC02NDE3MTE1
+NzgsMjEzMTA4OTQ2NywyMTA5MjIwMTQxLDE0NTcyODE3NzUsMz
+EyMzc5OTU1LDE1MjkwMTQ1NzgsNzcxODI1OTYsLTEyMDc1MTM3
+MjQsMTc2ODU5MTMxNywtMTI4OTYyNDYwMywtMjczNTAzMzQ5LD
+E5ODU2NTM5NTEsMTI1NzEwNjQ2OCwtMTU1MTY2NDE2NywtNDcw
+OTQ4NDAwXX0=
 -->
