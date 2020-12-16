@@ -363,11 +363,12 @@ So this third way is a bit more complex, but also more wholistic, because it rem
 
 Wind – breath in and out
 Fire - anger is a fire inside of us that we must be mindful of
- 
+
+Don't wait until emotion overwhelms, by then, it may be too late. Practice regularly so you are in touch with your emotions and practice right mindfulness   
 
   
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyODQ0NTUyNiwtMTQ2MjIyMjAwMCwtND
+eyJoaXN0b3J5IjpbLTU4MjMwNzEyMSwtMTQ2MjIyMjAwMCwtND
 QyNTA1NzIyLC00NDI1MDU3MjIsLTM4NzMzNzQzMSwtNjQxNzEx
 NTc4LDIxMzEwODk0NjcsMjEwOTIyMDE0MSwxNDU3MjgxNzc1LD
 MxMjM3OTk1NSwxNTI5MDE0NTc4LDc3MTgyNTk2LC0xMjA3NTEz
