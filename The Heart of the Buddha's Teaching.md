@@ -346,7 +346,11 @@ No matter where you are, what you are doing, something has got your attention. Y
 
 Mindfulness can be cultivated through practice. It can come naturally, but it can also atrophy the same as a muscle. Mindfulness practice requires the attention on our *bodies*, our *feelings*, our *mind*, and the objects of our mind. 
 
-The first way of practicing mindfulness in the body is easy. When you're walking, resting, moving your body in whatever way, as long as you are aware of what you are doing you are practicing. The next way is to do what I call a "body scan." When a meditation is practiced start to think about the body from the top down or body up. Scan the ends of your toes. How do they feel, what is the sensation in them. Then move to the bottoms of the feet. Do they feel warm? Cold? Ankles? Are they loose? Stiff? Tired. Then work you way up the body in this way doing a scan. Observe and note each part of the body. Start top down or bottom up. Either way is good. The last way to practice mindfulness in the body is a bit more naturalistic I may even say that it is a bit sci-fi. Here is how he describes it:
+The first way of practicing mindfulness in the body is easy. When you're walking, resting, moving your body in whatever way, as long as you are aware of what you are doing you are practicing. 
+
+The next way is to do what I call a "body scan." When a meditation is practiced start to think about the body from the top down or body up. Scan the ends of your toes. How do they feel, what is the sensation in them. Then move to the bottoms of the feet. Do they feel warm? Cold? Ankles? Are they loose? Stiff? Tired. Then work you way up the body in this way doing a scan. Observe and note each part of the body. Start top down or bottom up. Either way is good. 
+
+The third way to practice mindfulness in the body is a bit more naturalistic I may even say that it is a bit sci-fi. Here is how he describes it:
 ```
 The third method the Buddha offered for practicing mindfulness of the body in the body is to see the elements that it is made of: earth, water, fire, and air. “Breathing in, I see the earth element in me. Breathing out, I smile to the earth element in me.”
 
@@ -355,13 +359,15 @@ Hanh, Thich Nhat. The Heart of the Buddha's Teaching (p. 69). Potter/Ten Speed/H
 
 By realizing our bodies contain all of the elements of nature it helps us to ground ourselves in a reality where we are part of these natural forces inside and out. We are no longer just a mind encapsulated by a body with needs and desires. "We are everywhere." P69
 
+So this third way is a bit more complex, but also more wholistic, because it removes the self from the body and into the 
+
   
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTQ0MjUwNTcyMiwtNDQyNTA1NzIyLC0zOD
-czMzc0MzEsLTY0MTcxMTU3OCwyMTMxMDg5NDY3LDIxMDkyMjAx
-NDEsMTQ1NzI4MTc3NSwzMTIzNzk5NTUsMTUyOTAxNDU3OCw3Nz
-E4MjU5NiwtMTIwNzUxMzcyNCwxNzY4NTkxMzE3LC0xMjg5NjI0
-NjAzLC0yNzM1MDMzNDksMTk4NTY1Mzk1MSwxMjU3MTA2NDY4LC
-0xNTUxNjY0MTY3LC00NzA5NDg0MDAsLTEwMTk3OTA2NTQsMTc4
-MTEzNjExOV19
+eyJoaXN0b3J5IjpbLTU2OTc2OTgyMywtNDQyNTA1NzIyLC00ND
+I1MDU3MjIsLTM4NzMzNzQzMSwtNjQxNzExNTc4LDIxMzEwODk0
+NjcsMjEwOTIyMDE0MSwxNDU3MjgxNzc1LDMxMjM3OTk1NSwxNT
+I5MDE0NTc4LDc3MTgyNTk2LC0xMjA3NTEzNzI0LDE3Njg1OTEz
+MTcsLTEyODk2MjQ2MDMsLTI3MzUwMzM0OSwxOTg1NjUzOTUxLD
+EyNTcxMDY0NjgsLTE1NTE2NjQxNjcsLTQ3MDk0ODQwMCwtMTAx
+OTc5MDY1NF19
 -->
