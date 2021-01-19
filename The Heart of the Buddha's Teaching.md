@@ -371,8 +371,13 @@ Don't wait until emotion overwhelms, by then, it may be too late. Practice regul
 ### Chapter 12: Right Speech
 
 
+### Chapter 13: Right Action
+
+### Chapter 14: Right Diligence
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTUzNzg2OTMzNiwxNzczMTUwMDQxLC0xND
+eyJoaXN0b3J5IjpbMTYyMTc0MjAyOSwxNzczMTUwMDQxLC0xND
 YyMjIyMDAwLC00NDI1MDU3MjIsLTQ0MjUwNTcyMiwtMzg3MzM3
 NDMxLC02NDE3MTE1NzgsMjEzMTA4OTQ2NywyMTA5MjIwMTQxLD
 E0NTcyODE3NzUsMzEyMzc5OTU1LDE1MjkwMTQ1NzgsNzcxODI1
