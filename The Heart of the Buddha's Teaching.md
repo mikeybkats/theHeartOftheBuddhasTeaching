@@ -369,6 +369,7 @@ Water
 Don't wait until emotion overwhelms, by then, it may be too late. Practice regularly so you are in touch with your emotions and practice right mindfulness to address feelings methodically.   
 
 ### Chapter 12: Right Speech
+Unmindful speech can cause suffering in others.
 
 ### Chapter 13: Right Action
 
@@ -376,11 +377,11 @@ Don't wait until emotion overwhelms, by then, it may be too late. Practice regul
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTkyMDc1Mzg1MSwxNjIxNzQyMDI5LDE3Nz
-MxNTAwNDEsLTE0NjIyMjIwMDAsLTQ0MjUwNTcyMiwtNDQyNTA1
-NzIyLC0zODczMzc0MzEsLTY0MTcxMTU3OCwyMTMxMDg5NDY3LD
-IxMDkyMjAxNDEsMTQ1NzI4MTc3NSwzMTIzNzk5NTUsMTUyOTAx
-NDU3OCw3NzE4MjU5NiwtMTIwNzUxMzcyNCwxNzY4NTkxMzE3LC
-0xMjg5NjI0NjAzLC0yNzM1MDMzNDksMTk4NTY1Mzk1MSwxMjU3
-MTA2NDY4XX0=
+eyJoaXN0b3J5IjpbODM5MTA3NTUzLDE5MjA3NTM4NTEsMTYyMT
+c0MjAyOSwxNzczMTUwMDQxLC0xNDYyMjIyMDAwLC00NDI1MDU3
+MjIsLTQ0MjUwNTcyMiwtMzg3MzM3NDMxLC02NDE3MTE1NzgsMj
+EzMTA4OTQ2NywyMTA5MjIwMTQxLDE0NTcyODE3NzUsMzEyMzc5
+OTU1LDE1MjkwMTQ1NzgsNzcxODI1OTYsLTEyMDc1MTM3MjQsMT
+c2ODU5MTMxNywtMTI4OTYyNDYwMywtMjczNTAzMzQ5LDE5ODU2
+NTM5NTFdfQ==
 -->
