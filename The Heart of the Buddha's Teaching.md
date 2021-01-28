@@ -369,7 +369,7 @@ Water
 Don't wait until emotion overwhelms, by then, it may be too late. Practice regularly so you are in touch with your emotions and practice right mindfulness to address feelings methodically.   
 
 ### Chapter 12: Right Speech
-Unmindful speech can cause suffering in others. Cultivating loving speech and deep listening can bring joy to others. Right speech is based on right thinking. If our thoughts ar e
+Unmindful speech can cause suffering in others. Cultivating loving speech and deep listening can bring joy to others. Right speech is based on right thinking. If our thoughts are wrong, our speech is wrong. If our mindfulness is not right our thoughts and speech can randomly go either way.
 
 #### Right speech is:
 - **speaking truthfully** when something is green we say it is green
@@ -383,11 +383,11 @@ Unmindful speech can cause suffering in others. Cultivating loving speech and de
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNjgxMzEwNjQ2LC02MjM4NDc3OTMsLTE1NT
-EyODg4MzYsMTkyMDc1Mzg1MSwxNjIxNzQyMDI5LDE3NzMxNTAw
-NDEsLTE0NjIyMjIwMDAsLTQ0MjUwNTcyMiwtNDQyNTA1NzIyLC
-0zODczMzc0MzEsLTY0MTcxMTU3OCwyMTMxMDg5NDY3LDIxMDky
-MjAxNDEsMTQ1NzI4MTc3NSwzMTIzNzk5NTUsMTUyOTAxNDU3OC
-w3NzE4MjU5NiwtMTIwNzUxMzcyNCwxNzY4NTkxMzE3LC0xMjg5
-NjI0NjAzXX0=
+eyJoaXN0b3J5IjpbLTkxMzEyNDk3MSwtNjIzODQ3NzkzLC0xNT
+UxMjg4ODM2LDE5MjA3NTM4NTEsMTYyMTc0MjAyOSwxNzczMTUw
+MDQxLC0xNDYyMjIyMDAwLC00NDI1MDU3MjIsLTQ0MjUwNTcyMi
+wtMzg3MzM3NDMxLC02NDE3MTE1NzgsMjEzMTA4OTQ2NywyMTA5
+MjIwMTQxLDE0NTcyODE3NzUsMzEyMzc5OTU1LDE1MjkwMTQ1Nz
+gsNzcxODI1OTYsLTEyMDc1MTM3MjQsMTc2ODU5MTMxNywtMTI4
+OTYyNDYwM119
 -->
