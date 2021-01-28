@@ -379,17 +379,20 @@ Unmindful speech can cause suffering in others. Cultivating loving speech and de
 
 Our own suffering can build inside of us. It can manifest in blocks – repressed areas of our conscious that can release their negativity (sometimes very suddenly and quickly) through speech or sometimes actions. It can harm the people around us, those that we care for. The only defense against this is right mindfulness. Without this mindfulness, we may not even know what is building inside ourselves.  P86
 
+```Deep listening is the foundation of right speech. P86```
+
+Good communication is so important. It's important to be mindful of our words, and to also listen deeply. 
 ### Chapter 13: Right Action
 
 ### Chapter 14: Right Diligence
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTI2NzY1MTI2NSwtNjIzODQ3NzkzLC0xNT
-UxMjg4ODM2LDE5MjA3NTM4NTEsMTYyMTc0MjAyOSwxNzczMTUw
-MDQxLC0xNDYyMjIyMDAwLC00NDI1MDU3MjIsLTQ0MjUwNTcyMi
-wtMzg3MzM3NDMxLC02NDE3MTE1NzgsMjEzMTA4OTQ2NywyMTA5
-MjIwMTQxLDE0NTcyODE3NzUsMzEyMzc5OTU1LDE1MjkwMTQ1Nz
-gsNzcxODI1OTYsLTEyMDc1MTM3MjQsMTc2ODU5MTMxNywtMTI4
-OTYyNDYwM119
+eyJoaXN0b3J5IjpbMjA1NTA1NDM3MywxMjY3NjUxMjY1LC02Mj
+M4NDc3OTMsLTE1NTEyODg4MzYsMTkyMDc1Mzg1MSwxNjIxNzQy
+MDI5LDE3NzMxNTAwNDEsLTE0NjIyMjIwMDAsLTQ0MjUwNTcyMi
+wtNDQyNTA1NzIyLC0zODczMzc0MzEsLTY0MTcxMTU3OCwyMTMx
+MDg5NDY3LDIxMDkyMjAxNDEsMTQ1NzI4MTc3NSwzMTIzNzk5NT
+UsMTUyOTAxNDU3OCw3NzE4MjU5NiwtMTIwNzUxMzcyNCwxNzY4
+NTkxMzE3XX0=
 -->
