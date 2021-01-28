@@ -381,14 +381,15 @@ Our own suffering can build inside of us. It can manifest in blocks – represse
 
 ```Deep listening is the foundation of right speech. P86```
 
-Good communication is so important. It's important to be mindful of our words, and to also listen deeply. 
+Good communication is so important. It's important to be mindful of our words, and more importantly to listen deeply. Listening is more important than speaking. When we are not listened to "we become like a bomb ready to explode." P86 
+
 ### Chapter 13: Right Action
 
 ### Chapter 14: Right Diligence
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjA1NTA1NDM3MywxMjY3NjUxMjY1LC02Mj
+eyJoaXN0b3J5IjpbLTgzNDU4MzUwOSwxMjY3NjUxMjY1LC02Mj
 M4NDc3OTMsLTE1NTEyODg4MzYsMTkyMDc1Mzg1MSwxNjIxNzQy
 MDI5LDE3NzMxNTAwNDEsLTE0NjIyMjIwMDAsLTQ0MjUwNTcyMi
 wtNDQyNTA1NzIyLC0zODczMzc0MzEsLTY0MTcxMTU3OCwyMTMx
