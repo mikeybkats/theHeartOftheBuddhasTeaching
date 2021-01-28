@@ -373,7 +373,7 @@ Unmindful speech can cause suffering in others. Cultivating loving speech and de
 
 #### Right speech is:
 - **speaking truthfully** when something is green we say it is green
-- **
+- **speaking strictly and true to ourselves** you don't say one thing to one person and say it differently to another.
 
 ### Chapter 13: Right Action
 
@@ -381,11 +381,11 @@ Unmindful speech can cause suffering in others. Cultivating loving speech and de
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTExMTQzODkyNjcsLTE1NTEyODg4MzYsMT
-kyMDc1Mzg1MSwxNjIxNzQyMDI5LDE3NzMxNTAwNDEsLTE0NjIy
-MjIwMDAsLTQ0MjUwNTcyMiwtNDQyNTA1NzIyLC0zODczMzc0Mz
-EsLTY0MTcxMTU3OCwyMTMxMDg5NDY3LDIxMDkyMjAxNDEsMTQ1
-NzI4MTc3NSwzMTIzNzk5NTUsMTUyOTAxNDU3OCw3NzE4MjU5Ni
-wtMTIwNzUxMzcyNCwxNzY4NTkxMzE3LC0xMjg5NjI0NjAzLC0y
-NzM1MDMzNDldfQ==
+eyJoaXN0b3J5IjpbMTg5MDYwNzc4LC0xNTUxMjg4ODM2LDE5Mj
+A3NTM4NTEsMTYyMTc0MjAyOSwxNzczMTUwMDQxLC0xNDYyMjIy
+MDAwLC00NDI1MDU3MjIsLTQ0MjUwNTcyMiwtMzg3MzM3NDMxLC
+02NDE3MTE1NzgsMjEzMTA4OTQ2NywyMTA5MjIwMTQxLDE0NTcy
+ODE3NzUsMzEyMzc5OTU1LDE1MjkwMTQ1NzgsNzcxODI1OTYsLT
+EyMDc1MTM3MjQsMTc2ODU5MTMxNywtMTI4OTYyNDYwMywtMjcz
+NTAzMzQ5XX0=
 -->
