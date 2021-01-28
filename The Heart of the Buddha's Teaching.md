@@ -375,6 +375,7 @@ Unmindful speech can cause suffering in others. Cultivating loving speech and de
 - **speaking truthfully** when something is green we say it is green
 - **speaking strictly and accurately** you don't say one thing to one person and say it differently to another, you speak it strictly and directly.
 - **speaking without cruelty** you don't use words to injure, insult, or hurt.
+- **speaking without embellishment** do not exaggerate. exageration 
 
 ### Chapter 13: Right Action
 
@@ -382,11 +383,11 @@ Unmindful speech can cause suffering in others. Cultivating loving speech and de
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3ODI2MzA2OTAsLTYyMzg0Nzc5MywtMT
-U1MTI4ODgzNiwxOTIwNzUzODUxLDE2MjE3NDIwMjksMTc3MzE1
-MDA0MSwtMTQ2MjIyMjAwMCwtNDQyNTA1NzIyLC00NDI1MDU3Mj
-IsLTM4NzMzNzQzMSwtNjQxNzExNTc4LDIxMzEwODk0NjcsMjEw
-OTIyMDE0MSwxNDU3MjgxNzc1LDMxMjM3OTk1NSwxNTI5MDE0NT
-c4LDc3MTgyNTk2LC0xMjA3NTEzNzI0LDE3Njg1OTEzMTcsLTEy
-ODk2MjQ2MDNdfQ==
+eyJoaXN0b3J5IjpbMzMyOTczODk2LC02MjM4NDc3OTMsLTE1NT
+EyODg4MzYsMTkyMDc1Mzg1MSwxNjIxNzQyMDI5LDE3NzMxNTAw
+NDEsLTE0NjIyMjIwMDAsLTQ0MjUwNTcyMiwtNDQyNTA1NzIyLC
+0zODczMzc0MzEsLTY0MTcxMTU3OCwyMTMxMDg5NDY3LDIxMDky
+MjAxNDEsMTQ1NzI4MTc3NSwzMTIzNzk5NTUsMTUyOTAxNDU3OC
+w3NzE4MjU5NiwtMTIwNzUxMzcyNCwxNzY4NTkxMzE3LC0xMjg5
+NjI0NjAzXX0=
 -->
