@@ -371,17 +371,21 @@ Don't wait until emotion overwhelms, by then, it may be too late. Practice regul
 ### Chapter 12: Right Speech
 Unmindful speech can cause suffering in others. Cultivating loving speech and deep listening can bring joy to others.
 
+#### Right speech is:
+- **speaking truthfully** when something is green we say it is green
+- **
+
 ### Chapter 13: Right Action
 
 ### Chapter 14: Right Diligence
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE1NTEyODg4MzYsMTkyMDc1Mzg1MSwxNj
-IxNzQyMDI5LDE3NzMxNTAwNDEsLTE0NjIyMjIwMDAsLTQ0MjUw
-NTcyMiwtNDQyNTA1NzIyLC0zODczMzc0MzEsLTY0MTcxMTU3OC
-wyMTMxMDg5NDY3LDIxMDkyMjAxNDEsMTQ1NzI4MTc3NSwzMTIz
-Nzk5NTUsMTUyOTAxNDU3OCw3NzE4MjU5NiwtMTIwNzUxMzcyNC
-wxNzY4NTkxMzE3LC0xMjg5NjI0NjAzLC0yNzM1MDMzNDksMTk4
-NTY1Mzk1MV19
+eyJoaXN0b3J5IjpbLTExMTQzODkyNjcsLTE1NTEyODg4MzYsMT
+kyMDc1Mzg1MSwxNjIxNzQyMDI5LDE3NzMxNTAwNDEsLTE0NjIy
+MjIwMDAsLTQ0MjUwNTcyMiwtNDQyNTA1NzIyLC0zODczMzc0Mz
+EsLTY0MTcxMTU3OCwyMTMxMDg5NDY3LDIxMDkyMjAxNDEsMTQ1
+NzI4MTc3NSwzMTIzNzk5NTUsMTUyOTAxNDU3OCw3NzE4MjU5Ni
+wtMTIwNzUxMzcyNCwxNzY4NTkxMzE3LC0xMjg5NjI0NjAzLC0y
+NzM1MDMzNDldfQ==
 -->
