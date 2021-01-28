@@ -377,7 +377,7 @@ Unmindful speech can cause suffering in others. Cultivating loving speech and de
 - **speaking without cruelty** you don't use words to injure, insult, or hurt.
 - **speaking without embellishment** do not exaggerate. exaggeration exists to fulfill an agenda.  
 
-Our own suffering can build inside of us. Suffering can manifest in blocks. These blocks are areas of our conscious that can release their 
+Our own suffering can build inside of us. Suffering can manifest in blocks. These blocks are areas of our conscious that can release their negativity at any time first through speech or sometimes actions. 
 
 ### Chapter 13: Right Action
 
@@ -385,7 +385,7 @@ Our own suffering can build inside of us. Suffering can manifest in blocks. Thes
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5OTI2MTQ0MTIsLTYyMzg0Nzc5MywtMT
+eyJoaXN0b3J5IjpbLTE2MTA2MjAzOTMsLTYyMzg0Nzc5MywtMT
 U1MTI4ODgzNiwxOTIwNzUzODUxLDE2MjE3NDIwMjksMTc3MzE1
 MDA0MSwtMTQ2MjIyMjAwMCwtNDQyNTA1NzIyLC00NDI1MDU3Mj
 IsLTM4NzMzNzQzMSwtNjQxNzExNTc4LDIxMzEwODk0NjcsMjEw
