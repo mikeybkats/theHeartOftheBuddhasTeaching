@@ -369,13 +369,13 @@ Water
 Don't wait until emotion overwhelms, by then, it may be too late. Practice regularly so you are in touch with your emotions and practice right mindfulness to address feelings methodically.   
 
 ### Chapter 12: Right Speech
-Unmindful speech can cause suffering in others. Cultivating loving speech and deep listening can bring joy to others.
+Unmindful speech can cause suffering in others. Cultivating loving speech and deep listening can bring joy to others. Right speech is based on right thinking. If our thoughts ar e
 
 #### Right speech is:
 - **speaking truthfully** when something is green we say it is green
 - **speaking strictly and accurately** you don't say one thing to one person and say it differently to another, you speak it strictly and directly.
 - **speaking without cruelty** you don't use words to injure, insult, or hurt.
-- **speaking without embellishment** do not exaggerate. exageration 
+- **speaking without embellishment** do not exaggerate. exaggeration exists to fulfill an agenda.  
 
 ### Chapter 13: Right Action
 
@@ -383,7 +383,7 @@ Unmindful speech can cause suffering in others. Cultivating loving speech and de
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMzMyOTczODk2LC02MjM4NDc3OTMsLTE1NT
+eyJoaXN0b3J5IjpbNjgxMzEwNjQ2LC02MjM4NDc3OTMsLTE1NT
 EyODg4MzYsMTkyMDc1Mzg1MSwxNjIxNzQyMDI5LDE3NzMxNTAw
 NDEsLTE0NjIyMjIwMDAsLTQ0MjUwNTcyMiwtNDQyNTA1NzIyLC
 0zODczMzc0MzEsLTY0MTcxMTU3OCwyMTMxMDg5NDY3LDIxMDky
