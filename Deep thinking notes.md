@@ -8,9 +8,9 @@ Prajña Paramita – crossing over to the other side through insight wisdom and 
 Meditation will become truth when there is understanding and insight.
 
 What is the present moment? 
-| Present moment | Sense of self | -- |
-|--|--| -- |
-|  |  | -- |
+| Present moment | Sense of self | Actual future | Sense of future | Sense of past
+| -- |--| -- | -- | -- |
+| Where you are currently  | Your self conscious sefl | -- | -- | -- |
 												
 
 ### The practice of Dharma 
@@ -80,6 +80,6 @@ Lower consciousness (store):
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTUwMDQwMjA5MSwxMzIxNTQ3NTEsLTE0OT
-Q1MjEwNTddfQ==
+eyJoaXN0b3J5IjpbLTE3MjgyNDYzMDIsMTMyMTU0NzUxLC0xND
+k0NTIxMDU3XX0=
 -->
