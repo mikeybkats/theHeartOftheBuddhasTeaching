@@ -8,7 +8,7 @@ Prajña Paramita – crossing over to the other side through insight wisdom and 
 Meditation will become truth when there is understanding and insight.
 
 What is the present moment? 
-The present moment is always clouded by the self. By thinking we kn
+The present moment is always clouded by the self. By relating information to our own self the past and present are clouded. You can never see the future in totality. Removing the sense of self  
 
 | Present moment | Sense of self | Actual future | Sense of future | Sense of past
 | -- |--| -- | -- | -- |
@@ -82,6 +82,6 @@ Lower consciousness (store):
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTUzNzExNDU4OSwxMzIxNTQ3NTEsLTE0OT
+eyJoaXN0b3J5IjpbLTI3MDExMzQ0OCwxMzIxNTQ3NTEsLTE0OT
 Q1MjEwNTddfQ==
 -->
