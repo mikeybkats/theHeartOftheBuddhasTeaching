@@ -38,9 +38,11 @@ Meditation is to be aware of each feeling. Recognize it, smile at it, look deepl
 
 The aggregate of perception includes noting, naming, and conceptualizing as well as the perceiver and and perceived object.
 
-When considering the five aggregates consider your goals, motivations and what your perceived notion of that goal is – what is the formation? R
+When considering the five aggregates consider your goals, motivations and what your perceived notion of that goal is – what is the formation/result of that goal? Is that really what is going to happen?
 
-> Written with [StackEdit](https://stackedit.io/).
+"Our practice is to be aware of the manifestation and the presence of mental formations and look deeply into them in order to see their true nature." p180 The heart of the Buddha's teaching. Tich Nhat Han
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTg3NjUzNTM0Nl19
+eyJoaXN0b3J5IjpbLTE0OTQ1MjEwNTddfQ==
 -->
