@@ -28,8 +28,17 @@ The body of transformation
 - Equanimity
 
 ### The five aggregates
-1.
+1. Form
+2. Feelings
+3. Perceptions
+4. Mental formations
+5. Consciousness
+
+Meditation is to be aware of each feeling. Recognize it, smile at it, look deeply into it, and embrace it with all your heart.
+
+The aggregate of perception includes noting, naming, and conceptualizing as 
+
 > Written with [StackEdit](https://stackedit.io/).
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5NjMzNDQwNDZdfQ==
+eyJoaXN0b3J5IjpbLTE5MjgxOTYxNjRdfQ==
 -->
