@@ -45,8 +45,14 @@ When considering the five aggregates consider your goals, motivations and what y
 ### Why does my mind want to water the bad seeds?
 
 ### Five mindfulness trainings:
-- Prod
+- Protecting life and the earth
+- Prevent the exploitation of life by humans, plus being generous.
+- Prevent sexual abuse 
+- Practice deep listening
+- Be mindful of what you consume
+
+Practicing being aware of your mental formations. 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3Njg5MjcwNjQsLTE0OTQ1MjEwNTddfQ
+eyJoaXN0b3J5IjpbLTE5OTY2NzYxMjIsLTE0OTQ1MjEwNTddfQ
 ==
 -->
