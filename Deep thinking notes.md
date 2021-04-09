@@ -7,8 +7,8 @@ Prajña Paramita – crossing over to the other side through insight wisdom and 
 
 Meditation will become truth when there is understanding and insight.
 
-What is the present moment? 
-The present moment is always clouded by the self. By relating information to our own self the past and present are clouded. You can never see the future in totality. Removing the sense of self  
+*Goals.* What is the present moment? 
+The present moment is always clouded by the self. By relating information to our own self the past and present are clouded. You can never see the future in totality. With a good plan, remove the sense of self and focus on the present. Doing this will ensure an easier path to your goals.  
 
 | Present moment | Sense of self | Actual future | Sense of future | Sense of past
 | -- |--| -- | -- | -- |
@@ -82,6 +82,6 @@ Lower consciousness (store):
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTI3MDExMzQ0OCwxMzIxNTQ3NTEsLTE0OT
-Q1MjEwNTddfQ==
+eyJoaXN0b3J5IjpbLTE2MzM2Mzk3NTAsMTMyMTU0NzUxLC0xND
+k0NTIxMDU3XX0=
 -->
