@@ -42,7 +42,11 @@ When considering the five aggregates consider your goals, motivations and what y
 
 "Our practice is to be aware of the manifestation and the presence of mental formations and look deeply into them in order to see their true nature." p180 The heart of the Buddha's teaching. Tich Nhat Han
 
+### Why does my mind want to water the bad seeds?
 
+### Five mindfulness trainings:
+- Prod
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE0OTQ1MjEwNTddfQ==
+eyJoaXN0b3J5IjpbLTE3Njg5MjcwNjQsLTE0OTQ1MjEwNTddfQ
+==
 -->
