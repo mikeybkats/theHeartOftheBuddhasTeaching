@@ -1,5 +1,13 @@
 ## Dhyana
 Meditation – stopping and deep thinking
+First live mindfully.
+Second stop, think reflect.
+
+Prajña Paramita – crossing over to the other side through insight wisdom and non-discrimination.
+
+Meditation will become truth when there is understanding and insight.
+
+Prese
 
 ### The practice of Dharma 
 the way of understanding and love
@@ -68,6 +76,6 @@ Lower consciousness (store):
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNTMxOTM4OTUyLDEzMjE1NDc1MSwtMTQ5ND
+eyJoaXN0b3J5IjpbOTAxMTQ3NjI5LDEzMjE1NDc1MSwtMTQ5ND
 UyMTA1N119
 -->
