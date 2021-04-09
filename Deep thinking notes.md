@@ -58,6 +58,12 @@ True inclusiveness is having the capacity to be aware of those around you, take 
 ### Why does my mind want to water the bad seeds?
 There are good seeds and bad seeds.
 
+Upper consciousness (present mind):
+Seeds of Affliction: Anger, Jealousy 
+Seeds of mindfulness: Caring, Joy 
+Lower consciousness (store):
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTMyMTU0NzUxLC0xNDk0NTIxMDU3XX0=
+eyJoaXN0b3J5IjpbLTE2MTk4NDcxNjQsMTMyMTU0NzUxLC0xND
+k0NTIxMDU3XX0=
 -->
