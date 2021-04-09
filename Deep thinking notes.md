@@ -54,7 +54,7 @@ When considering the five aggregates consider your goals, motivations and what y
 Practicing being aware of your mental formations. Many of our behaviors are motivated by inflating our sense of self. When we drink alcohol it inflates our ego and enhances our sense of self while at the same time diminishing our level of awareness and impairing judgement.
 
 ### transformation
-True inclusiveness is having the capacity to be wtake in , embrace and transform.
+True inclusiveness is having the capacity to be aware of those around you, take them in, embrace what they offer through deep listening and ultimately transform because of this. In other words inclusivity is not just inviting strangers to your table, but actually having the mindset to change based on 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTY4MDQwMTY2NiwtMTQ5NDUyMTA1N119
+eyJoaXN0b3J5IjpbMTM3NjgxMjgxNCwtMTQ5NDUyMTA1N119
 -->
