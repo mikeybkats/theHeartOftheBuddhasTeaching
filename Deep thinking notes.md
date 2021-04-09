@@ -51,8 +51,8 @@ When considering the five aggregates consider your goals, motivations and what y
 - Practice deep listening
 - Be mindful of what you consume
 
-Practicing being aware of your mental formations. 
+Practicing being aware of your mental formations. Many of our behaviors are motivated by inflating our sense of self. When we drink alcohol it inflates our ego and enhances our sense of self while at the same time diminishing our level of awareness and impairing judgement.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5OTY2NzYxMjIsLTE0OTQ1MjEwNTddfQ
+eyJoaXN0b3J5IjpbLTExNzgzMjgzNTYsLTE0OTQ1MjEwNTddfQ
 ==
 -->
