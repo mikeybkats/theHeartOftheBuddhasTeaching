@@ -1,3 +1,6 @@
+## Dhyana
+Meditation – stopping and deep thinking
+
 ### The practice of Dharma 
 the way of understanding and love
 
@@ -59,11 +62,12 @@ True inclusiveness is having the capacity to be aware of those around you, take 
 There are good seeds and bad seeds.
 
 Upper consciousness (present mind):
-Seeds of Affliction: Anger, Jealousy 
-Seeds of mindfulness: Caring, Joy 
+Seeds of Affliction: Anger, Jealousy, ect 
+Seeds of mindfulness: Caring, Joy, inclusiveness, ect 
 Lower consciousness (store):
 
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE2MTk4NDcxNjQsMTMyMTU0NzUxLC0xND
-k0NTIxMDU3XX0=
+eyJoaXN0b3J5IjpbNTMxOTM4OTUyLDEzMjE1NDc1MSwtMTQ5ND
+UyMTA1N119
 -->
