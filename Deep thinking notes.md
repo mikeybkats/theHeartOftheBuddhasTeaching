@@ -52,7 +52,9 @@ When considering the five aggregates consider your goals, motivations and what y
 - Be mindful of what you consume
 
 Practicing being aware of your mental formations. Many of our behaviors are motivated by inflating our sense of self. When we drink alcohol it inflates our ego and enhances our sense of self while at the same time diminishing our level of awareness and impairing judgement.
+
+### transformation
+True inclusiveness is having the capacity to be wtake in , embrace and transform.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTExNzgzMjgzNTYsLTE0OTQ1MjEwNTddfQ
-==
+eyJoaXN0b3J5IjpbMTY4MDQwMTY2NiwtMTQ5NDUyMTA1N119
 -->
