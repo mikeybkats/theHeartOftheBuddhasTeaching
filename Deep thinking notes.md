@@ -42,7 +42,6 @@ When considering the five aggregates consider your goals, motivations and what y
 
 "Our practice is to be aware of the manifestation and the presence of mental formations and look deeply into them in order to see their true nature." p180 The heart of the Buddha's teaching. Tich Nhat Han
 
-### Why does my mind want to water the bad seeds?
 
 ### Five mindfulness trainings:
 - Protecting life and the earth
@@ -53,8 +52,12 @@ When considering the five aggregates consider your goals, motivations and what y
 
 Practicing being aware of your mental formations. Many of our behaviors are motivated by inflating our sense of self. When we drink alcohol it inflates our ego and enhances our sense of self while at the same time diminishing our level of awareness and impairing judgement.
 
-### transformation
-True inclusiveness is having the capacity to be aware of those around you, take them in, embrace what they offer through deep listening and ultimately transform because of this. In other words inclusivity is not just inviting strangers to your table, but actually having the mindset to change based on 
+### True inclusiveness / transformation
+True inclusiveness is having the capacity to be aware of those around you, take them in, embrace what they offer through deep listening and ultimately transform because of this. In other words inclusivity is not just inviting strangers to your table, but actually having the mindset to change based on your learning of them.
+
+### Why does my mind want to water the bad seeds?
+There are good seeds and bad seeds.
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTM3NjgxMjgxNCwtMTQ5NDUyMTA1N119
+eyJoaXN0b3J5IjpbMTMyMTU0NzUxLC0xNDk0NTIxMDU3XX0=
 -->
