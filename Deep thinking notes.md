@@ -36,9 +36,11 @@ The body of transformation
 
 Meditation is to be aware of each feeling. Recognize it, smile at it, look deeply into it, and embrace it with all your heart.
 
-The aggregate of perception includes noting, naming, and conceptualizing as 
+The aggregate of perception includes noting, naming, and conceptualizing as well as the perceiver and and perceived object.
+
+When considering the five aggregates consider your goals, motivations and what your perceived notion of that goal is – what is the formation? R
 
 > Written with [StackEdit](https://stackedit.io/).
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5MjgxOTYxNjRdfQ==
+eyJoaXN0b3J5IjpbMTg3NjUzNTM0Nl19
 -->
