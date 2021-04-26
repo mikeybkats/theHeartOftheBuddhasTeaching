@@ -83,8 +83,13 @@ Lower consciousness (store):
 ### Interdependent co-arising
 "This is because that is. This is not because that is not. This comes to be because that comes to be. This ceases to exist because that ceases to exist."
 
-Tich Nhat Han says that interdependent co-arising should not be relied on as a Bhuddist teaching, but it can be helpful in understanding o 
+Tich Nhat Han says that interdependent co-arising should not be relied on as a Bhuddist teaching, but it can be helpful in understanding some of the teachings. My takeaway is that while useful these ways of thinking can lead to wrong thinking and wrong path when considered by a deluded mind.
+
+```
+Obstacles teach us about ourselves. They 
+```
+ 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTE0ODAzMTMxNywtMTc0MjQxMTM0MCwtMT
+eyJoaXN0b3J5IjpbMTIxMDQzMzQ1MSwtMTc0MjQxMTM0MCwtMT
 YzMzYzOTc1MCwxMzIxNTQ3NTEsLTE0OTQ1MjEwNTddfQ==
 -->
