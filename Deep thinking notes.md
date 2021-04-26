@@ -81,7 +81,10 @@ Seeds of mindfulness: Caring, Joy, inclusiveness, ect
 Lower consciousness (store):
 
 ### Interdependent co-arising
+"This is because that is. This is not because that is not. This comes to be because that comes to be. This ceases to exist because that ceases to exist."
+
+Tich Nhat Han says that interdependent co-arising should not be relied on as a Bhuddist teaching, but it can be helpful in understanding o 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3NDI0MTEzNDAsLTE2MzM2Mzk3NTAsMT
-MyMTU0NzUxLC0xNDk0NTIxMDU3XX0=
+eyJoaXN0b3J5IjpbMTE0ODAzMTMxNywtMTc0MjQxMTM0MCwtMT
+YzMzYzOTc1MCwxMzIxNTQ3NTEsLTE0OTQ1MjEwNTddfQ==
 -->
