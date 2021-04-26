@@ -99,12 +99,14 @@ Interdependent Co-arising (IDCO) has 10 parts:
 9. birth and death
 10. Samsara – the repetition of birth, life and death. the journey of the soul
  
-The risk of studying IDCO is that a deluded mind will see what it wants to support its own cravings andaversions, 
+The risk of studying IDCO is that a deluded mind will see what it wants to support its own cravings and aversions. 
+
+The point of IDCO is that it gives definition to phenomena that exist in the practice of self-awareness and life.   
 
 ### Equanimity
 
  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTExNzE1MzA4NTMsLTE3NDI0MTEzNDAsLT
-E2MzM2Mzk3NTAsMTMyMTU0NzUxLC0xNDk0NTIxMDU3XX0=
+eyJoaXN0b3J5IjpbLTEzMzEwMTM0MCwtMTc0MjQxMTM0MCwtMT
+YzMzYzOTc1MCwxMzIxNTQ3NTEsLTE0OTQ1MjEwNTddfQ==
 -->
