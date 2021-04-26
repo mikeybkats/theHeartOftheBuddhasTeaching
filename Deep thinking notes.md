@@ -80,8 +80,8 @@ Seeds of Affliction: Anger, Jealousy, ect
 Seeds of mindfulness: Caring, Joy, inclusiveness, ect 
 Lower consciousness (store):
 
-
+### Interdependent co-arisi
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE2MzM2Mzk3NTAsMTMyMTU0NzUxLC0xND
-k0NTIxMDU3XX0=
+eyJoaXN0b3J5IjpbLTE3MzU5NDI1MTUsLTE2MzM2Mzk3NTAsMT
+MyMTU0NzUxLC0xNDk0NTIxMDU3XX0=
 -->
