@@ -101,12 +101,14 @@ Interdependent Co-arising (IDCO) has 10 parts:
  
 The risk of studying IDCO is that a deluded mind will see what it wants to support its own cravings and aversions. 
 
-The point of IDCO is that it gives definition to phenomena that exist in the practice of self-awareness and life.   
+The point of IDCO is that it gives definition to phenomena that exist in the practice of self-awareness and life. Having these terms helps to comprehend the existence of these phenomena, but why they exist and how they come to be and why one thing is correct or isn't correct only leads to delusion. 
+
+### Seven Factors of Awakening
 
 ### Equanimity
 
  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEzMzEwMTM0MCwtMTc0MjQxMTM0MCwtMT
+eyJoaXN0b3J5IjpbMTMxOTQ1OTAxNCwtMTc0MjQxMTM0MCwtMT
 YzMzYzOTc1MCwxMzIxNTQ3NTEsLTE0OTQ1MjEwNTddfQ==
 -->
