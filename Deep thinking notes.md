@@ -87,7 +87,7 @@ Tich Nhat Han says that interdependent co-arising should not be relied on as a B
 
 `Obstacles teach us about ourselves. They teach us about our strengths and weaknesses, and help us understand our limits. They create forks in the road where you get to decide which way to go.`
 
-Interdependent Co-arising has 10 parts:
+Interdependent Co-arising (IDCO) has 10 parts:
 1. ignorance
 2. formations
 3. consciousness
@@ -97,12 +97,14 @@ Interdependent Co-arising has 10 parts:
 7. grasping and rejecting
 8. being and non-being
 9. birth and death
-10. Samsara – 
+10. Samsara – the repetition of birth, life and death. the journey of the soul
  
+The risk of studying IDCO is that a deluded mind will see what it wants to support its own cravings andaversions, 
+
 ### Equanimity
 
  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIxNjI0NTQ5MywtMTc0MjQxMTM0MCwtMT
-YzMzYzOTc1MCwxMzIxNTQ3NTEsLTE0OTQ1MjEwNTddfQ==
+eyJoaXN0b3J5IjpbLTExNzE1MzA4NTMsLTE3NDI0MTEzNDAsLT
+E2MzM2Mzk3NTAsMTMyMTU0NzUxLC0xNDk0NTIxMDU3XX0=
 -->
