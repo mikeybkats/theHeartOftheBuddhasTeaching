@@ -87,12 +87,22 @@ Tich Nhat Han says that interdependent co-arising should not be relied on as a B
 
 `Obstacles teach us about ourselves. They teach us about our strengths and weaknesses, and help us understand our limits. They create forks in the road where you get to decide which way to go.`
 
-Interdependen
+Interdependent Co-arising has 10 parts:
+1. ignorance
+2. formations
+3. consciousness
+4. mind and body
+5. pleasant and painful feelings
+6. craving and aversion
+7. grasping and rejecting
+8. being and non-being
+9. birth and death
+10. Samsara – 
  
 ### Equanimity
 
  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTcxNjMzNDE2NiwtMTc0MjQxMTM0MCwtMT
+eyJoaXN0b3J5IjpbLTIxNjI0NTQ5MywtMTc0MjQxMTM0MCwtMT
 YzMzYzOTc1MCwxMzIxNTQ3NTEsLTE0OTQ1MjEwNTddfQ==
 -->
