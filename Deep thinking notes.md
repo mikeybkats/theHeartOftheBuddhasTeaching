@@ -85,12 +85,12 @@ Lower consciousness (store):
 
 Tich Nhat Han says that interdependent co-arising should not be relied on as a Bhuddist teaching, but it can be helpful in understanding some of the teachings. My takeaway is that while useful these ways of thinking can lead to wrong thinking and wrong path when considered by a deluded mind.
 
-```
+`
 Obstacles teach us about ourselves. They teach us about our strengths and weaknesses, and help us understand our limits. They create forks in the road where you get to decide which way to go.
-```
+`
  
  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE2OTg2ODQ2NjYsLTE3NDI0MTEzNDAsLT
-E2MzM2Mzk3NTAsMTMyMTU0NzUxLC0xNDk0NTIxMDU3XX0=
+eyJoaXN0b3J5IjpbLTIyODUyMTc4NiwtMTc0MjQxMTM0MCwtMT
+YzMzYzOTc1MCwxMzIxNTQ3NTEsLTE0OTQ1MjEwNTddfQ==
 -->
