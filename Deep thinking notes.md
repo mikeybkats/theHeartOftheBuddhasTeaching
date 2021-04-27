@@ -82,7 +82,8 @@ Lower consciousness (store):
 
 |                                      upper consciousness (mind)                                  |
 | ------------------------------------------------------------------------------------------------ |
-| seeds of affliction: jealousy, anger, discrimination, ect. | seeds of mindfulness: joy, patience |
+| seeds of affliction: jealousy, anger, discrimination, ect. 
+| seeds of mindfulness: joy, patience |
 | lower consciousness (store) | 
 |-----------------------------|
 
@@ -119,7 +120,7 @@ To see an object as the object we must ignore the parts and the origin of the pa
 
  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTgwMzQyNjAzNyw3NjQ0MDcyNzYsLTE3ND
+eyJoaXN0b3J5IjpbLTEyNTU5NDMzOSw3NjQ0MDcyNzYsLTE3ND
 I0MTEzNDAsLTE2MzM2Mzk3NTAsMTMyMTU0NzUxLC0xNDk0NTIx
 MDU3XX0=
 -->
