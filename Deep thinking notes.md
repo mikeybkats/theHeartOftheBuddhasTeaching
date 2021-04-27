@@ -125,13 +125,13 @@ To see an object as the object we must ignore the parts and the origin of the pa
 6. concentration
 7. and letting go
 
-The potentialities of the seven factors of awakening are in all of us. We all have the capacity to allow these good seeds to grow. Nurturing these qualities will help nourish the enlightenment inside us all, as enlightenment is not simply a thing that can be found like a treasure and instantly transport your mind to another place. It is a journey that grows all the time, it is a  
+The potentialities of the seven factors of awakening are in all of us. We all have the capacity to allow these good seeds to grow. Nurturing these qualities will help nourish the enlightenment inside us all, as enlightenment is not simply a thing that can be found like a treasure and instantly transport your mind to another place. It is a journey that grows all the time, it is not something that reaches a point of completion and stops. Enlightenment is like a magnificent tree that will always grow as long as we don't chop it down.  
 
 ### Equanimity
 
  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTgwODk3ODY1Nyw3NjQ0MDcyNzYsLTE3ND
-I0MTEzNDAsLTE2MzM2Mzk3NTAsMTMyMTU0NzUxLC0xNDk0NTIx
-MDU3XX0=
+eyJoaXN0b3J5IjpbLTE1NzY5OTMxNDAsNzY0NDA3Mjc2LC0xNz
+QyNDExMzQwLC0xNjMzNjM5NzUwLDEzMjE1NDc1MSwtMTQ5NDUy
+MTA1N119
 -->
