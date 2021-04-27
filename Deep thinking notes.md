@@ -87,6 +87,7 @@ Lower consciousness (store):
 | **lower consciousness (store)** | 
 ||
 
+Our lower minds are all similar. We all store the same kinds of seeds, and we all have the capacity to encourage certain kinds of seeds to g 
 
 ### Interdependent co-arising
 "This is because that is. This is not because that is not. This comes to be because that comes to be. This ceases to exist because that ceases to exist."
@@ -121,7 +122,7 @@ To see an object as the object we must ignore the parts and the origin of the pa
 
  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIwMTU2ODgwNzgsNzY0NDA3Mjc2LC0xNz
-QyNDExMzQwLC0xNjMzNjM5NzUwLDEzMjE1NDc1MSwtMTQ5NDUy
-MTA1N119
+eyJoaXN0b3J5IjpbMTg3MDg5MTU2NCw3NjQ0MDcyNzYsLTE3ND
+I0MTEzNDAsLTE2MzM2Mzk3NTAsMTMyMTU0NzUxLC0xNDk0NTIx
+MDU3XX0=
 -->
