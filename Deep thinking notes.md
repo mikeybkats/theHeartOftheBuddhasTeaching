@@ -117,12 +117,20 @@ Considering ignorance:
 To see an object as the object we must ignore the parts and the origin of the parts in order to see the object as the object itself. 
 
 ### Seven Factors of Awakening
+1. mindfulness
+2. investigation of phenomena
+3. diligence
+4. joy
+5. ease 
+6. concentration
+7. and letting go
+
 
 ### Equanimity
 
  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTg4MDc1ODAzLDc2NDQwNzI3NiwtMTc0Mj
-QxMTM0MCwtMTYzMzYzOTc1MCwxMzIxNTQ3NTEsLTE0OTQ1MjEw
-NTddfQ==
+eyJoaXN0b3J5IjpbLTE2ODM0NzUwNTAsNzY0NDA3Mjc2LC0xNz
+QyNDExMzQwLC0xNjMzNjM5NzUwLDEzMjE1NDc1MSwtMTQ5NDUy
+MTA1N119
 -->
