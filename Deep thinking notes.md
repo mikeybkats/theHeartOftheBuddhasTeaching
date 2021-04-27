@@ -80,6 +80,10 @@ Seeds of Affliction: Anger, Jealousy, ect
 Seeds of mindfulness: Caring, Joy, inclusiveness, ect 
 Lower consciousness (store):
 
+|                                      upper consciousness (mind)                                 |
+| ----------------------------------------------------------------------------------------------- |
+|  
+
 ### Interdependent co-arising
 "This is because that is. This is not because that is not. This comes to be because that comes to be. This ceases to exist because that ceases to exist."
 
@@ -113,6 +117,7 @@ To see an object as the object we must ignore the parts and the origin of the pa
 
  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNzY0NDA3Mjc2LC0xNzQyNDExMzQwLC0xNj
-MzNjM5NzUwLDEzMjE1NDc1MSwtMTQ5NDUyMTA1N119
+eyJoaXN0b3J5IjpbLTE3ODEzMTQ4OSw3NjQ0MDcyNzYsLTE3ND
+I0MTEzNDAsLTE2MzM2Mzk3NTAsMTMyMTU0NzUxLC0xNDk0NTIx
+MDU3XX0=
 -->
