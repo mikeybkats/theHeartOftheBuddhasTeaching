@@ -125,12 +125,13 @@ To see an object as the object we must ignore the parts and the origin of the pa
 6. concentration
 7. and letting go
 
+The potentialities of the seven factors of awakening are in all of us. We all have the capacity to allow these good seeds to grow. Nurturing these qualities will help nourish the enlighte 
 
 ### Equanimity
 
  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE2ODM0NzUwNTAsNzY0NDA3Mjc2LC0xNz
-QyNDExMzQwLC0xNjMzNjM5NzUwLDEzMjE1NDc1MSwtMTQ5NDUy
-MTA1N119
+eyJoaXN0b3J5IjpbMTgyNzAwMjE3OSw3NjQ0MDcyNzYsLTE3ND
+I0MTEzNDAsLTE2MzM2Mzk3NTAsMTMyMTU0NzUxLC0xNDk0NTIx
+MDU3XX0=
 -->
