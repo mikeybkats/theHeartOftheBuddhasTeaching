@@ -35,7 +35,9 @@ _Your tears are mine_
 
 #### page 51 - Self-care seeing your loved one within you
 
-"Our parents are our closest ancestors. We know that, genetically speaking, all our ancestors are still alive in each of our cells. They have not died. But not only do we carry their genes, we also carry all their thoughts, beliefs experiences, and aspirations within us. We carry their actions of body, speech, and mind into the future. You cannot take your loved one out of you. Just as you cannot take your father or you mother out of you, even if you wanted to. Everything is in everything else. With the insight of interconnectedness or "interbeing," you understand that you are   
+"Our parents are our closest ancestors. We know that, genetically speaking, all our ancestors are still alive in each of our cells. They have not died. But not only do we carry their genes, we also carry all their thoughts, beliefs experiences, and aspirations within us. We carry their actions of body, speech, and mind into the future. You cannot take your loved one out of you. Just as you cannot take your father or you mother out of you, even if you wanted to. Everything is in everything else. With the insight of interconnectedness or "interbeing," you understand that you are your father, you are your mother. If you are angry with your father or your mother, you are angry with yourself. Likewise, if you are angry with your children, you are angry with yourself. Our children are our continuation, and they carry us into the future."
+
+  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTYwNzk0NzY2XX0=
+eyJoaXN0b3J5IjpbLTE1MDk5NTEwMTFdfQ==
 -->
