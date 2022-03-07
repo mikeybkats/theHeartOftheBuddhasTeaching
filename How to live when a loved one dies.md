@@ -49,7 +49,7 @@ _Your tears are mine_
 
 "We may like to write down a list of feelings and emotions so that we can recognize them easily and call them by their true names."
 
-"Knowing how to handle a painful feeling, a painful emot  
+"Knowing how to handle a painful feeling, a painful emotion, is key. It is possible to transform our feelings of anger or sorry into understanding, acceptance, and compassion."  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIwNzQ5NDg1NzUsMzI2OTY5MzM3XX0=
+eyJoaXN0b3J5IjpbLTcyMDA5MTUzNCwzMjY5NjkzMzddfQ==
 -->
