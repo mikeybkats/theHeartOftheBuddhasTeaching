@@ -26,6 +26,8 @@ _Your tears are mine_
 #### page 37 - When we are overwhelmed by grief
 
 "It is important that we are able to name what we are feeling, to identify what is making us suffer so that transformation, peace, and joy can be possible."
+
+#### page 48 - Self-care Sitting meditation for healing
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTExNDkwNjQxMjhdfQ==
+eyJoaXN0b3J5IjpbLTEzMTcwODMyMDldfQ==
 -->
