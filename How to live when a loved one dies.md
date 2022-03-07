@@ -31,7 +31,11 @@ _Your tears are mine_
 
 "Meditation is the art of stopping our racing mind and looking deeply into things."
 
-"We don't allow ourselves to be carried away by our regrets about the past or worries
+"We don't allow ourselves to be carried away by our regrets about the past or worries about the future."
+
+#### page 51 - Self-care seeing your loved one within you
+
+"Our parents are our closest ancestors. We know that, genetically speaking, all our ancestors are still alive in each of our cells. They have not died. But not only do we carry their genes, we also car
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTcxNTc0OTg5Nl19
+eyJoaXN0b3J5IjpbMjAyMDQyNTc3Nl19
 -->
