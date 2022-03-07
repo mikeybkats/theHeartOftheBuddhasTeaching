@@ -27,7 +27,11 @@ _Your tears are mine_
 
 "It is important that we are able to name what we are feeling, to identify what is making us suffer so that transformation, peace, and joy can be possible."
 
-#### page 48 - Self-care Sitting meditation for healing
+#### page 48 - Self-care sitting meditation for healing
+
+"Meditation is the art of stopping our racing mind and looking deeply into things."
+
+"We don't allow ourselves to be carried away by our regrets about the past or worries
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEzMTcwODMyMDldfQ==
+eyJoaXN0b3J5IjpbMTcxNTc0OTg5Nl19
 -->
