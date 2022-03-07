@@ -1,6 +1,8 @@
 # How to live when a loved one dies
 (Notes)
 
+#### page v
+
 Oneness
 
 _The moment I die,  _
@@ -13,7 +15,15 @@ _as I die each moment?_
 _I come back to you_
 _in every moment._
 _Just look,_
-_feel
+_feel my presence,_
+_If you want to cry,_
+_please cry._
+_And know_
+_that I will cry with you._
+_The tears you shed will heal us both._
+_Your tears are mine_
+
+#### page 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEwMDkwMTk4NzBdfQ==
+eyJoaXN0b3J5IjpbNzkwOTIzMzc3XX0=
 -->
