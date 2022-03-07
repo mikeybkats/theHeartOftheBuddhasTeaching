@@ -41,7 +41,11 @@ _Your tears are mine_
 
 "The past is not truly gone; it is still here, and we can touch it. We may have regrets about the past and believe we cannot go back to fix our mistakes. In fact, touching the present moment, we can still touch the pain and the wounds of the past."
 
+#### page 59 - Self-Care listening to a mindfulness bell
+
+"The sound of the bell is our friend, reminding us to stop what we are doing and come home to ourselves and the present moment."
+
   
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMzI2OTY5MzM3XX0=
+eyJoaXN0b3J5IjpbLTE3NjgzMDUxLDMyNjk2OTMzN119
 -->
