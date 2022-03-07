@@ -23,7 +23,9 @@ _that I will cry with you._
 _The tears you shed will heal us both._
 _Your tears are mine_
 
-#### page 
+#### page 37 - When we are overwhelmed by grief
+
+"It is important that we are able to name what we are feeling, to identify what is making us suffer so that transformation, peace, and joy can be possible."
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNzkwOTIzMzc3XX0=
+eyJoaXN0b3J5IjpbLTExNDkwNjQxMjhdfQ==
 -->
