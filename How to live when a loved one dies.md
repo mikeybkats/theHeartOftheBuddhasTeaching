@@ -37,7 +37,11 @@ _Your tears are mine_
 
 "Our parents are our closest ancestors. We know that, genetically speaking, all our ancestors are still alive in each of our cells. They have not died. But not only do we carry their genes, we also carry all their thoughts, beliefs experiences, and aspirations within us. We carry their actions of body, speech, and mind into the future. You cannot take your loved one out of you. Just as you cannot take your father or you mother out of you, even if you wanted to. Everything is in everything else. With the insight of interconnectedness or "interbeing," you understand that you are your father, you are your mother. If you are angry with your father or your mother, you are angry with yourself. Likewise, if you are angry with your children, you are angry with yourself. Our children are our continuation, and they carry us into the future."
 
+#### page 54 - Healing the past in the present
+
+"The past is not truly gone; it is still here, and we can touch it. We may have regrets about the past and believe we cannot go back to fix our mistakes. In fact, touching the present moment, we can still touch the pain and the wounds of the past."
+
   
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE1MDk5NTEwMTFdfQ==
+eyJoaXN0b3J5IjpbMzI2OTY5MzM3XX0=
 -->
