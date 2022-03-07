@@ -45,7 +45,11 @@ _Your tears are mine_
 
 "The sound of the bell is our friend, reminding us to stop what we are doing and come home to ourselves and the present moment."
 
-  
+#### page 61 - Call your emotion by its true name
+
+"We may like to write down a list of feelings and emotions so that we can recognize them easily and call them by their true names."
+
+"Knowing how to handle a painful feeling, a painful emot  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE3NjgzMDUxLDMyNjk2OTMzN119
+eyJoaXN0b3J5IjpbLTIwNzQ5NDg1NzUsMzI2OTY5MzM3XX0=
 -->
